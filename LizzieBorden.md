@@ -1,6 +1,7 @@
-# Lizzie Borden <br>
- <br>
+# Lizzie Borden 
+
 ## Forty Whacks (Prologue) - Company 
+
  <br>
 ENSEMBLE <br>
 Lizzie Borden took an axe <br>
@@ -35,8 +36,9 @@ Andrew -- after my father I was so christened. <br>
 I am innocent. <br>
 I leave it to my council to speak for me <br>
  <br>
- <br>
+
 ## The House Of Borden - Company 
+
  <br>
 In the House of Borden, there's a lock on every door; <br>
 In every room a prisoner of a long, silent war. <br>
@@ -97,7 +99,9 @@ I don't mean to spread a rumor, these are just things that I hear. <br>
 But there's some crazy shite in the House of Borden... <br>
  <br>
  <br>
+
 ## This is Not Love - Lizzie 
+
  <br>
 This, this, this is not love. <br>
 I don't know what it is. <br>
@@ -142,7 +146,9 @@ This is not love. <br>
 I don't know what it is, <br>
 but I want out of it. <br>
  <br>
+
 ## I Gotta Get Out Of Here - Lizzie and Alice 
+
  <br>
 ALICE (spoken) <br>
 Lizzie? <br>
@@ -252,7 +258,9 @@ I gotta <br>
 I gotta get out of here! <br>
  <br>
  <br>
+
 ## If You Knew - Alice 
+
  <br>
 Always standing in your wake <br>
 With a secret of my own <br>
@@ -299,7 +307,9 @@ If you knew <br>
 i could protect you <br>
 Would you let me hold you close if you knew? <br>
  <br>
+
 ## The Soul Of The White Bird - Company 
+
  <br>
 LIZZIE <br>
 Who are these that fly <br>
@@ -397,7 +407,10 @@ LIZZIE (spoken) <br>
 Then come up. Come up and see them. <br>
 Father says birds are filthy, but I think they're beautiful <br>
  <br>
+
 ## Maybe Someday - Alice 
+
+
  <br>
 ALICE <br>
 Maybe someday <br>
@@ -416,9 +429,13 @@ Your secret's safe now <br>
 With me <br>
  <br>
  <br>
+
 ## "The Will" - Company 
+
  <br>
+
 ## Sweet Little Sister - Company 
+
  <br>
 Emma: <br>
 I was a trembling child, just twelve years old, <br>
@@ -487,7 +504,9 @@ I've got to get away. <br>
 I've got to get away. <br>
  <br>
  <br>
+
 ## Shattercane And Velvet Grass - Company 
+
  <br>
 Bridget: <br>
 Fire burn, and toil <br>
@@ -575,9 +594,13 @@ Oh soothe this day <br>
 Milk and sugar, cup o’ tea <br>
  <br>
  <br>
+
 ## "The Milk" - Lizzie and Alice 
+
  <br>
+
 ## Will You Stay? - Lizzie and Alice 
+
  <br>
 LIZZIE (spoken) <br>
 I'm afraid somebody will do something. <br>
@@ -634,7 +657,9 @@ I'll keep my eyes half open <br>
 One eye open all the time <br>
  <br>
  <br>
+
 ## Why Are All These Heads Off? - Bridget, Lizzie and Alice
+
  <br>
 BRIDGET (spoken) <br>
 Miss Lizzie, your father doesn't want you nor Miss Russell <br>
@@ -723,7 +748,9 @@ I'm standing looking forward in the dark <br>
 A feeling brushes past me <br>
 And I know the wind has changed <br>
  <br>
+
 ## Mercury Rising - Company 
+
  <br>
 BRIDGET <br>
 Air stands still <br>
@@ -754,7 +781,9 @@ Ivory hand <br>
 And splatter o'er <br>
 The reeking floor <br>
  <br>
+
 ## Somebody Will Do Something - Company
+
  <br>
 BRIDGET <br>
 Somebody will do something <br>
@@ -867,10 +896,14 @@ LIZZIE (spoken) <br>
 Father is dead. <br>
 Somebody came in and killed him <br>
  <br>
+
 ## "Forty Whacks"(Entr’acte) - Band 
+
+
  <br>
- <br>
+
 ## The Fall Of The House Of Borden/"The Alibi" - Bridget, Lizzie and Alice 
+
  <br>
 BRIDGET <br>
 In the house of Borden <br>
@@ -955,8 +988,10 @@ It's August <br>
 And it's ninety-five degrees <br>
 Well, you do the math <br>
  <br>
- <br>
+
+
 ## What The Fuck Now, Lizzie? - Emma and Lizzie 
+
  <br>
 Lizzie: Emma? Is that you? <br>
 Emma: My sweet little sister, what have you done? <br>
@@ -1003,9 +1038,13 @@ Emma: Gotta figure out a plan, gotta spring into action. <br>
 Lizzie: Ain't nobody home but the sleeping and the dead. <br>
 Gonna sleep tonight in sweet satisfaction. <br>
  <br>
+
 ## "The Dress" - Company 
+
  <br>
+
 ## Burn The Old Thing Up - Company 
+
  <br>
 LIZZIE <br>
 Fire burns <br>
@@ -1093,7 +1132,9 @@ All that was <br>
 Burn it down <br>
  <br>
  <br>
+
 ## Questions Questions - Company 
+
  <br>
 ALICE <br>
 Answering questions questions <br>
@@ -1263,7 +1304,9 @@ Did she burn the thing up <br>
 .................. <br>
  <br>
  <br>
+
 ## Will You Lie? - Company 
+
  <br>
 ALICE <br>
 Stop, stop, stop <br>
@@ -1328,7 +1371,9 @@ ALICE (spoken) <br>
 I saw you. I saw miss Lizzie Borden burn that dress! <br>
  <br>
  <br>
+
 ## Watchmen For The Morning - Bridget, Emma and Lizzie 
+
  <br>
 EMMA & LIZZIE <br>
 Out of the depths I cry to thee <br>
@@ -1370,7 +1415,9 @@ For the morning <br>
 More than watchmen <br>
 For the morning <br>
  <br>
+
 ## Maybe Someday (Reprise 1) / Thirteen Days In Taunton - Company 
+
  <br>
 LIZZIE (spoken) <br>
 My name is Lizzie Andrew Borden. Not Elizabeth. <br>
@@ -1677,9 +1724,13 @@ ALICE, BRIDGET, EMMA <br>
 Now <br>
  <br>
  <br>
+
 ## "Maybe Someday (Reprise 2)" - Company 
+
  <br>
+
 ## Into Your Wildest Dreams (Epilogue) - Company 
+
  <br>
 LIZZIE <br>
 I'll fly <br>
@@ -1724,7 +1775,9 @@ Fly <br>
 I'll <br>
 Fly <br>
  <br>
+
 ## Forty Whacks (Curtain) - Company 
+
  <br>
 BRIDGET <br>
 Two, three, four! <br>
