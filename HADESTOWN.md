@@ -113,7 +113,7 @@ It’s a tale of a love that never dies <br>
 It’s a love song <br>
 About someone who tries <br>
  <br>
-## Come Home With Me <br>
+## Come Home With Me 
  <br>
 ORPHEUS (spoken) <br>
 Come home with me! <br>
@@ -200,7 +200,7 @@ EURYDICE (spoken) <br>
 That’s worth a lot... What else you got? <br>
  <br>
  <br>
-## Wedding Song <br>
+## Wedding Song 
  <br>
 EURYDICE <br>
 Lover tell me if you can <br>
@@ -249,7 +249,7 @@ The birds are gonna make the wedding bed <br>
 And the trees are gonna lay the wedding table <br>
 And the rivers are gonna give us the wedding band <br>
  <br>
-## Epic 1  <br>
+## Epic 1  
  <br>
 ORPHEUS <br>
 King of diamonds, king of spades <br>
@@ -276,7 +276,7 @@ The river rose up, singing <br>
 La la la la la la la… <br>
  <br>
  <br>
-## Living It Up On Top <br>
+## Living It Up On Top 
  <br>
 PERSEPHONE <br>
 Well it’s like he said, I’m an outdoor girl <br>
@@ -475,7 +475,7 @@ COMPANY <br>
 Livin' it, livin' it <br>
 Livin' it up on top! <br>
  <br>
-## All I've Ever Know <br>
+## All I've Ever Know 
  <br>
 [Eurydice]: <br>
 I was alone so long <br>
@@ -518,7 +518,7 @@ The wind will never change on us <br>
 As long as we stay with each other <br>
 It will always be like this <br>
  <br>
-## Way Down Hadestown <br>
+## Way Down Hadestown 
  <br>
 HERMES <br>
 Follow that dollar for a long way down <br>
@@ -594,7 +594,7 @@ Way down under the ground <br>
 Way down under the ground <br>
 Way down under the ground <br>
  <br>
-## Epct 2 <br>
+## Epct 2 
  <br>
 ORPHEUS <br>
 Heavy and hard is the heart of the king <br>
@@ -623,7 +623,7 @@ And suddenly Hades was only a man <br>
 With a taste of nectar upon his lips, singing: <br>
 La la la la la la la… <br>
  <br>
-## Epic (Part II) / Chant <br>
+## Epic (Part II) / Chant 
  <br>
 ORPHEUS <br>
 King of diamonds, king of spades <br>
@@ -651,7 +651,7 @@ Row by row, <br>
 The river rose up, singing: <br>
 La la la la la la la… <br>
  <br>
-## Hey Little Songbird <br>
+## Hey Little Songbird 
  <br>
 HADES <br>
 Hey, little songbird, give me a song <br>
@@ -696,7 +696,7 @@ They’ll take you down, they’ll pick you clean <br>
 If you stick around such a desperate scene <br>
 See people get mean when the chips are down <br>
  <br>
-## When the Chips are Down <br>
+## When the Chips are Down 
  <br>
 FATES <br>
 Life ain’t easy, life ain’t fair <br>
@@ -745,7 +745,7 @@ Now that the <br>
 Now that the chips are down <br>
  <br>
  <br>
-## Gone, I'm Gone <br>
+## Gone, I'm Gone 
  <br>
 EURYDICE <br>
 Orpheus, my heart is yours <br>
@@ -772,7 +772,7 @@ What you gonna do when the chips are down? <br>
 Now that the chips are down <br>
  <br>
  <br>
-## Wait For Me <br>
+## Wait For Me 
  <br>
 HERMES <br>
 How to get to Hadestown <br>
@@ -823,7 +823,7 @@ Wait for me, I’m coming too <br>
 I’m coming <br>
 Wait, wait, wait, wait <br>
  <br>
-## Why We Build the Wall <br>
+## Why We Build the Wall 
  <br>
 HADES <br>
 Why do we build the wall, my children, my children? <br>
@@ -889,7 +889,7 @@ That’s why we build the wall <br>
 We build the wall to keep us free <br>
 We build the wall to keep us free <br>
  <br>
-## Our Lady of the Underground <br>
+## Our Lady of the Underground 
  <br>
 PERSEPHONE <br>
 I don’t know about you, boys <br>
@@ -954,7 +954,7 @@ A little moonshine ain’t no sin <br>
 One at a time, boys, straight line <br>
 What the boss don’t know, the boss won’t mind <br>
  <br>
-## Way Down Hadestown II <br>
+## Way Down Hadestown II 
  <br>
 HERMES <br>
 Now in Hadestown there was a lot of souls <br>
@@ -1089,7 +1089,7 @@ FATES & COMPANY <br>
 Way down Hadestown <br>
 Way down under the ground! <br>
  <br>
-## Flowers  <br>
+## Flowers  
  <br>
 EURYDICE <br>
 What I wanted was to fall asleep <br>
@@ -1118,7 +1118,7 @@ You, the one I left behind <br>
 If you ever walk this way <br>
 Come and find me lying in the bed I made <br>
  <br>
-## Come Home With Me II <br>
+## Come Home With Me II 
  <br>
 ORPHEUS (spoken) <br>
 Come home with me! <br>
@@ -1219,7 +1219,7 @@ EURYDICE (spoken) <br>
 I do. <br>
  <br>
  <br>
-## Papers <br>
+## Papers 
  <br>
 HADES (spoken) <br>
 Young man! <br>
@@ -1258,7 +1258,7 @@ As for you... <br>
 Everybody, gather around! <br>
 Everyone, come look and see what becomes of trespassers with no respect for property! <br>
  <br>
-## Nothing Changes <br>
+## Nothing Changes 
  <br>
 FATES <br>
 Why the struggle, why the strain? <br>
@@ -1282,7 +1282,7 @@ Nothing changes <br>
 Nothing changes <br>
 Nothing changes anyhow <br>
  <br>
-## If It's True  <br>
+## If It's True  
  <br>
 ORPHEUS <br>
 If it’s true what they say <br>
@@ -1326,7 +1326,7 @@ And I ask you as a lover <br>
 And I ask you once again <br>
 Is it true what they say? <br>
  <br>
-## How Long <br>
+## How Long 
  <br>
 PERSEPHONE <br>
 Hades, my husband, Hades, my light <br>
@@ -1372,7 +1372,7 @@ It just burns like a fire in the pit of the sky <br>
 And the earth is a bird on a spit in the sky <br>
 How long, how long, how long? <br>
  <br>
-## Chant II <br>
+## Chant II 
  <br>
 HERMES (spoken) <br>
 Now everybody knows the walls have ears <br>
@@ -1526,7 +1526,7 @@ Make me laugh, make me weep <br>
 Make the king feel young again <br>
 Sing for an old man! <br>
  <br>
-## Epic (Part III) <br>
+## Epic (Part III) 
  <br>
 ORPHEUS <br>
 Heavy and hard is the heart of the king <br>
@@ -1589,7 +1589,7 @@ BOTH <br>
 La la la la la la la… <br>
  <br>
  <br>
-## Word to the Wise  <br>
+## Word to the Wise  
  <br>
 FATES <br>
 Gotta think quick <br>
@@ -1618,7 +1618,7 @@ Men are fools <br>
 Men are frail <br>
 Give them the rope and they’ll hang themselves <br>
  <br>
-## His Kiss, The Riot  <br>
+## His Kiss, The Riot  
  <br>
 HADES <br>
 The devil take this Orpheus <br>
@@ -1665,7 +1665,7 @@ As a woman’s smile and a hand to hold <br>
 But all alone his blood runs thin <br>
 And doubt comes, doubt comes in <br>
  <br>
-## Promises <br>
+## Promises 
  <br>
 EURYDICE <br>
 Promises you made to me <br>
@@ -1744,7 +1744,7 @@ I will <br>
 BOTH <br>
 We will <br>
  <br>
-## Wait For Me II <br>
+## Wait For Me II 
  <br>
 HERMES (spoken) <br>
 Meanest dog you’ll ever meet - <br>
@@ -1810,7 +1810,7 @@ Wait. <br>
 Wait... <br>
  <br>
  <br>
-## Doubt Comes In <br>
+## Doubt Comes In 
  <br>
 ORPHEUS & FATES <br>
 Doubt comes in <br>
@@ -1856,7 +1856,7 @@ Of the darkest night <br>
 Comes right before the dawn <br>
  <br>
  <br>
-## Road to Hell II <br>
+## Road to Hell II 
  <br>
 HERMES (mumbles and sighs) <br>
 Alright, alright <br>
@@ -1906,7 +1906,7 @@ With a tale of a love that never dies <br>
 With a love song <br>
 For anyone who tries. <br>
  <br>
-## I Raise My Cup <br>
+## I Raise My Cup 
  <br>
 EURYDICE <br>
 Pour the wine and raise a cup <br>

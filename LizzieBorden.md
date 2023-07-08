@@ -1,1742 +1,1742 @@
-# Lizzie Borden
-
-## Forty Whacks (Prologue) - Company
-
-ENSEMBLE
-Lizzie Borden took an axe
-Gave her mother forty whacks
-When she saw what she had done
-Gave her father forty-one
-
-ALICE (spoken)
-I am Alice Russel.
-I have lived in Fall River a good many years.
-All that time the Bordens have occupied the house next door.
-I exchanged calls with Miss Lizzie Borden regularly.
-She always received me upstairs
-
-BRIDGET (spoken)
-The name's Bridget Sullivan.
-I was sometimes called "Maggie" by Miss Emma and Miss Lizzie,
-It bein' the name of the previous girl.
-I came to Fall River four years ago,
-Have worked for the Bordens ever since
-
-EMMA (spoken)
-My full name is Emma L. Borden. The L is for Lenora.
-I am the sister of Miss Lizzie Borden.
-I was just a trifle over fourteen
-When my father married for the second time,
-And I remember my mother very well
-
-LIZZIE (spoken)
-My name is is Lizzie Andrew Borden. Not Elizabeth, Lizzie.
-Andrew -- after my father I was so christened.
-I am innocent.
-I leave it to my council to speak for me
-
-
-## The House Of Borden - Company
-
-In the House of Borden, there's a lock on every door;
-In every room a prisoner of a long, silent war.
-Let us take you to an August back 1892.
-When all Hell broke loose in the House of Borden...
-
-Andrew Jackson Borden knows that pennies must be pinched,
-So Monday's mutton supper will be Tuesday's mutton lunch.
-And then to stretch it further, Thursday's breakfast is mutton soup,
-And were getting sick in the House of Borden...
-When daddy was an undertaker, no body was too tall;
-He'd charge 'em for the big box and bury them in the small.
-To save a couple of dollars, he'd chop off a couple feet...
-He's fucking rich, that Mr. Borden!
-
-In the House of Borden, there's a lock on every door;
-In every room a prisoner of a long, silent war.
-Let us take you to an August back 1892.
-When all Hell broke loose in the House of Borden...
-
-The sisters live in the front of the house, the old folks take the rear;
-It seems a bit peculiar but they've kept it up for years.
-I won't say they're not cordial; crowded's more the word.
-They get no peace in the House of Borden...
-Lizzie's not the brightest bird and Emma's not so sweet;
-Mind you, these are not my words, but I hear things on the street.
-Anyway you slice it, these girls are past there prime.
-There's no wedding bells in the House of Borden...
-
-In the House of Borden, there's a lock on every door;
-In every room a prisoner of a long, silent war.
-Let us take you to an August back 1892.
-When all Hell broke loose in the House of Borden....
-
-Father married Mrs. Borden after our mother died.
-If she's in it for the money, she's in for a big surprise;
-We've no personal objection, BUT SHE CAN'T HAVE WHAT'S OURS!
-Fair is fair in the House of Borden....
-
-The family crest of Borden is a lion with an axe,
-Running rampant into battle, ready to attack.
-It's an oddly fitting emblem for a family like this
-And were killing time in the House of Borden (Killing time) .
-
-In the House of Borden, there's a lock on every door;
-In every room a prisoner of a long, silent war.
-Let us take you to an August back 1892.
-When all Hell broke loose in the House of Borden....
-
-When I was a girl, I have my father my gold ring.
-He wears it to this day, a symbol of my love for him.
-My middle name is Andrew; Father wanted a boy.
-But I'm Daddy's Little Girl now.
-
-The father loved the younger one, some say a bit too much.
-They say she talks to pigeons, but who am I to judge?
-I don't mean to spread a rumor, these are just things that I hear.
-But there's some crazy shite in the House of Borden...
-
-
-## This is Not Love - Lizzie
-
-This, this, this is not love.
-I don't know what it is.
-But I know this, this is not love.
-You touch with selfish hands.
-This is not love.
-You speak in cold demands.
-This is not love.
-Whatever you take, it isn't giving.
-When I, I have no choice.
-What kind of life am I living,
-if I, I have no voice?
-I don't know what it is.
-
-Sometimes you say the words,
-but this is not love.
-After thought apologies are not enough,
-to make me believe,
-make me forgive you,
-repair the damage done.
-It isn't enough,
-to say you're sorry
-and still have your fun.
-
-I want to feel that I can fall
-and not be made to feel a fool.
-I wanna look up
-and see a bright light shining through.
-To see arms outstretched to hold me,
-wanting nothing in return,
-but only for me to feel
-safe and secure.
-Is that too much to ask for?
-Is it so wrong to want more than this?
-
-Because this, this,
-this is not love.
-Oh, this is not love.
-This is not love.
-This is not love.
-This is not love.
-I don't know what it is,
-but I want out of it.
-
-## I Gotta Get Out Of Here - Lizzie and Alice
-
-ALICE (spoken)
-Lizzie?
-
-LIZZIE (spoken)
-Alice!
-
-ALICE (spoken)
-Are you alright?
-
-LIZZIE (spoken)
-Yes, I-I'm fine
-
-ALICE (spoken)
-Lizzie, what happened?
-
-LIZZIE (spoken)
-Nothing, I just-
-
-ALICE (spoken)
-Are you have troubles again with your-?
-
-LIZZIE (spoken)
-No, Alice-!
-
-(sung)
-I gotta get out of here!
-
-ALICE (spoken)
-Lizzie! Lizzie, listen to me!
-
-LIZZIE
-I gotta
-I gotta
-
-ALICE (spoken)
-Lizzie, you can tell me anything!
-
-LIZZIE
-I gotta
-
-ALICE (spoken)
-Lizzie, I won't give you away
-
-LIZZIE
-I gotta
-I
-
-There's something hangin' over me
-This thunderstorm I can't see
-But I know it's there
-I gotta get out of here
-
-Oh, Alice, I'm afraid tonight
-'Cause something doesn't feel quite right
-Out there in the dark
-
-This feeling comes over me
-At times, no matter where I am
-And I know if I stay here longer
-It's gonna turn out bad
-
-I gotta get out of here
-I gotta get out of here
-I gotta get out of here
-I gotta
-I gotta
-I gotta
-I gotta
-
-I gotta go anew and have
-What all the uptown people have
-Don't I deserve it?
-
-I gotta get out of here
-I wanna go and disappear
-But sis and me, we're stuck down here
-And it's killing me
-
-I wanna know who I am
-Free and clear
-I just don't know how
-
-I used to hope it'd be different
-No more pain and fear
-But hope is disappearing now
-
-Uh!
-I gotta
-I gotta
-Uh, uh, I gotta
-Uh, uh, uh, I gotta
-
-And this feeling comes over me
-At times, no matter where I am
-
-ALICE
-Stay here longer!
-
-LIZZIE
-And I know if I stay here longer
-It's gonna turn out bad
-I gotta get out of here
-I gotta
-I gotta
-I gotta
-I gotta get out of here!
-
-
-## If You Knew - Alice
-
-Always standing in your wake
-With a secret of my own
-Too afraid to share with you
-So I come home alone
-Each night and draw the curtain, shut the blind
-How will you trust me with your secret when I don’t trust you with -
-
-If you knew
-Knew how I’ve been watching you
-If you knew
-Knew how I see everything you do
-If you knew
-Could I still touch you?
-Would you let me comfort you if you knew?
-
-The room is hot, the air is thick
-And I can barely breathe tonight
-Open the window, trim the wick
-Oh, this cannot be right
-For it seems to me a secret’s just a lie
-And Lizzie, no-one knows the emptiness of lying more than -
-
-If you knew
-Knew that every night I dream of you
-If you knew
-Knew that in my dream I come to you
-If you knew
-Would you still touch me?
-Would you tell me everything if you knew?
-
-Together we’ll be safe
-The truth will make it so
-Just like my dream each night
-For in my dream I know
-That you are in my arms and everything is fine
-Oh, Lizzie, take me to your hiding-place and I’ll take you to -
-
-If you knew
-Knew that in my heart I always knew
-If you knew
-Knew that every word I spoke was true
-If you knew
-i could protect you
-Would you let me hold you close if you knew?
-
-## The Soul Of The White Bird - Company
-
-LIZZIE
-Who are these that fly
-Like a cloud to my window?
-Coming with the waxing of a moon
-
-To the beating of your wings
-And the violins of freedom
-I love you
-I am hopeful
-Am I doomed?
-
-I clamor and I moan
-That house is not my home
-My silver wings are pinioned with green gold
-My ghost
-My dove
-My innocence
-My love
-Am I utterly forgotten?
-Left alone
-
-LIZZIE (spoken)
-The boys
-Wanna come
-Wanna play
-With my pigeons
-And you never let the boys come, boys come, boys come
-Hand on my knee, on my... never let the boys come
-Chasing all the boys away
-I feel myself disintegrate
-Oh, please daddy, please daddy
-If I stay with you, daddy
-Fingers on my knee, daddy
-Stop it, stop it, stop it, daddy
-Fingers on my, fingers on my, boys pigeons fingers daddy
-Stop it
-Stop it
-Daddy
-
-BRIDGET
-And if there are survivors
-They will be on the mountain
-Like doves of the valley
-All of them moaning
-
-ALL
-Oh, that I had wings like a dove
-I would fly away
-Be at rest
-
-LIZZIE (spoken)
-Lock away your secrets
-Lock away my life
-What if I unlocked your secrets
-To your stupid little wife?
-I want a new dress, daddy!
-Need some money for a new dress
-New dress daddy money please daddy please
-I want a new dress
-Dress like all the girls up on the hill
-And all the boys and pretty dresses
-Pretty dresses, pretty boys and girls
-Come 'round to the pretty houses pretty penny
-Hand on my knee, on my fingers, on my, pretty penny
-
-BRIDGET
-And the soul of the white bird
-On the wings of six black birds
-Will be carried in the night
-To the mountain
-
-ALL
-Oh, Lord, do not deliver
-The soul of the white bird
-The soul of the white bird
-To the wild beast
-
-ALICE (spoken)
-Lizzie, don't!
-
-LIZZIE (spoken)
-Is that you, Alice?
-
-ALICE (spoken)
-Yes. Lizzie, I've been looking all over for you
-
-LIZZIE (spoken)
-Are you alone?
-
-ALICE (spoken)
-Yes
-
-LIZZIE (spoken)
-Then come up. Come up and see them.
-Father says birds are filthy, but I think they're beautiful
-
-## Maybe Someday - Alice
-
-ALICE
-Maybe someday
-Your heart will be open
-Maybe someday
-You will know
-Maybe someday
-I will make you see
-That your secret's safe now
-
-LIZZIE
-My secret's safe now
-
-ALICE
-Your secret's safe now
-With me
-
-
-## "The Will" - Company
-
-## Sweet Little Sister - Company
-
-Emma:
-I was a trembling child, just twelve years old,
-When Mother placed you in my arms.
-You were only two, you never knew,
-My sweet, little sister.
-She touched my face and she pulled me close.
-Then Mama whispered in my ear,
-"Don't let her go, don't let her know,
-Your sweet, little sister."
-For years I tried to be to you all the things she was to me.
-I tried to give you all the love you needed.
-But now I feel, with out a word,
-I've told you everything.
-And now I hear a warning, and it must be heeded.
-Sweet, little sister, I'm so afraid to leave you.
-Sweet, little sister, I've got to get away.
-I was a dark sought girl of 14 years,
-When Father married his new wife.
-You were only four,
-So I kept score my sweet little sister.
-She touched his face and pulled him close.
-
-Lizzie, overlapping:
-Huh-huh-huh
-
-Emma:
-And then she whispered in his ear,
-
-Lizzie, overlapping:
-Huh-huh-huh
-
-Both:
-He let us go, she runs the show,
-My sweet little sister.
-
-Lizzie:
-For years I tried to keep you safe
-from the darkness in my heart.
-But now I see my troubles were detected.
-
-Emma:
-I look into your cold,
-Green eyes and they tell me everything.
-Now I know that no one's been protected.
-Sweet, little sister. What I don't see.
-
-Lizzie:
-What you don't see.
-
-Emma:
-Sweet, little sister, I could never hurt you.
-
-Lizzie:
-No never hurt you.
-Sweet sister, what you don't know.
-
-Emma:
-What I don't know.
-Sweet, little sister, I can never show.
-Sweet, little sister, I'm so afraid to leave you.
-Sweet, little sister, I'm more afraid to stay.
-Sweet, little sister, I'm scared of what may happen.
-Sweet, little sister, I've got to get away.
-I've got to get away.
-I've got to get away.
-
-
-## Shattercane And Velvet Grass - Company
-
-Bridget:
-Fire burn, and toil
-Kettle bubble, water boil.
-Assam, Salem,
-Bitter trouble, very strong
-
-Lizzie: (spoken)
-Prussic acid is one of the most rapidly acting toxins
-which affects mammals.
-
-Bridget:
-Black leaves, and steep
-Settle cozy, dark as sleep
-Oh soothe this day
-Milk and sugar, cup o’ tea
-
-Lizzie: (spoken)
-Several common plants can accumulate large quantities.
-
-Lizzie, counterpoint to Bridget: (spoken)
-Shattercane and velvet grass,
-Sorghum and white clover,
-Millipedes and bergamot,
-Flax when winter’s over.
-Cherry stones and apricots,
-Pale and milky silent
-Poison for it’s Prussian blue..
-
-Bridget, counterpoint to Lizzie:
-Fire burn, and toil
-Kettle bubble, water boil.
-Assam, Salem,
-Bitter trouble, very strong.
-Black leaves, and steep
-Settle cozy, dark as sleep
-Oh soothe this day
-Milk and sugar, cup o’ tea
-
-Lizzie:
-Ferric phenyl cyanide, 300 parts per million.
-Prussic acid, blue-ish clear, protoplasmic poison.
-Boils at 26 degrees and faintly tastes of almonds.
-Death is by paralysis of heart and respiration.
-Passes through unbroken skin.
-Careful, for it’s found within…
-
-Shattercane and velvet grass,
-Sorghum and white clover,
-Millipedes and bergamot,
-Flax when winter’s over.
-Cherry stones and apricots,
-Pale and milky silent
-Poison for it’s Prussian blue,
-Beautiful and violent.
-
-Following directions in the Book of Household Poisons.
-Just a drop dropped in the milk
-And hope that she’ll enjoy some.
-Mind you don’t forget to close your eyes and hold your breath.
-But
-Wouldn’t it be easy, now?
-A perfect little death.
-Just drop a grain into her tea,
-Mrs Borden, R.I.P.
-
-Lizzie, counterpoint to Bridget:
-Shattercane and velvet grass,
-Sorghum and white clover,
-Millipedes and bergamot,
-Flax when winter’s over.
-Cherry stones and apricots,
-Pale and milky silent
-Poison for it’s Prussian blue,
-Beautiful and violent.
-
-Bridget, counterpoint to Lizzie:
-Fire burn, and toil
-Kettle bubble, water boil.
-Assam, Salem,
-Bitter trouble, very strong.
-Black leaves, and steep
-Settle cozy, dark as sleep
-Oh soothe this day
-Milk and sugar, cup o’ tea
-
-
-## "The Milk" - Lizzie and Alice
-
-## Will You Stay? - Lizzie and Alice
-
-LIZZIE (spoken)
-I'm afraid somebody will do something.
-I don't know what, but somebody will do something
-
-(sung)
-I want to sleep
-With my eyes half open
-One eye open half the time
-
-ALICE
-But if you close your eyes you'll see
-The golden pear it hides the key
-That can open up your heart
-And end your toil
-See how they ripen on the bough
-Now they're falling to the ground
-To be gathered up in skirts
-Before they soil
-
-Will you lay next to me
-In the shade of the tree
-Will you bite through the skin
-To the sweet flesh within
-Will you rest a while
-Let me bring back your smile
-Will you lay next to me
-Will you stay
-
-LIZZIE (spoken)
-I've ought to be on my way
-
-ALICE
-The pear is jealous of the rose
-Because she hears of all your woes
-But she never gets a chance
-To taste your pleasure
-And though she's luscious to the taste
-She's always eaten in great haste
-For the autumn winds that blow
-Steal all her treasure
-
-Will you lay next to me
-In the shade of the tree
-Will you bite through the skin
-To the sweet flesh within
-Will you rest a while
-Let me bring back your smile
-Will you lay next to me
-Will you stay
-
-Sleep sleep sleep
-I'll keep my eyes half open
-One eye open all the time
-
-
+# Lizzie Borden <br>
+ <br>
+## Forty Whacks (Prologue) - Company 
+ <br>
+ENSEMBLE <br>
+Lizzie Borden took an axe <br>
+Gave her mother forty whacks <br>
+When she saw what she had done <br>
+Gave her father forty-one <br>
+ <br>
+ALICE (spoken) <br>
+I am Alice Russel. <br>
+I have lived in Fall River a good many years. <br>
+All that time the Bordens have occupied the house next door. <br>
+I exchanged calls with Miss Lizzie Borden regularly. <br>
+She always received me upstairs <br>
+ <br>
+BRIDGET (spoken) <br>
+The name's Bridget Sullivan. <br>
+I was sometimes called "Maggie" by Miss Emma and Miss Lizzie, <br>
+It bein' the name of the previous girl. <br>
+I came to Fall River four years ago, <br>
+Have worked for the Bordens ever since <br>
+ <br>
+EMMA (spoken) <br>
+My full name is Emma L. Borden. The L is for Lenora. <br>
+I am the sister of Miss Lizzie Borden. <br>
+I was just a trifle over fourteen <br>
+When my father married for the second time, <br>
+And I remember my mother very well <br>
+ <br>
+LIZZIE (spoken) <br>
+My name is is Lizzie Andrew Borden. Not Elizabeth, Lizzie. <br>
+Andrew -- after my father I was so christened. <br>
+I am innocent. <br>
+I leave it to my council to speak for me <br>
+ <br>
+ <br>
+## The House Of Borden - Company 
+ <br>
+In the House of Borden, there's a lock on every door; <br>
+In every room a prisoner of a long, silent war. <br>
+Let us take you to an August back 1892. <br>
+When all Hell broke loose in the House of Borden... <br>
+ <br>
+Andrew Jackson Borden knows that pennies must be pinched, <br>
+So Monday's mutton supper will be Tuesday's mutton lunch. <br>
+And then to stretch it further, Thursday's breakfast is mutton soup, <br>
+And were getting sick in the House of Borden... <br>
+When daddy was an undertaker, no body was too tall; <br>
+He'd charge 'em for the big box and bury them in the small. <br>
+To save a couple of dollars, he'd chop off a couple feet... <br>
+He's fucking rich, that Mr. Borden! <br>
+ <br>
+In the House of Borden, there's a lock on every door; <br>
+In every room a prisoner of a long, silent war. <br>
+Let us take you to an August back 1892. <br>
+When all Hell broke loose in the House of Borden... <br>
+ <br>
+The sisters live in the front of the house, the old folks take the rear; <br>
+It seems a bit peculiar but they've kept it up for years. <br>
+I won't say they're not cordial; crowded's more the word. <br>
+They get no peace in the House of Borden... <br>
+Lizzie's not the brightest bird and Emma's not so sweet; <br>
+Mind you, these are not my words, but I hear things on the street. <br>
+Anyway you slice it, these girls are past there prime. <br>
+There's no wedding bells in the House of Borden... <br>
+ <br>
+In the House of Borden, there's a lock on every door; <br>
+In every room a prisoner of a long, silent war. <br>
+Let us take you to an August back 1892. <br>
+When all Hell broke loose in the House of Borden.... <br>
+ <br>
+Father married Mrs. Borden after our mother died. <br>
+If she's in it for the money, she's in for a big surprise; <br>
+We've no personal objection, BUT SHE CAN'T HAVE WHAT'S OURS! <br>
+Fair is fair in the House of Borden.... <br>
+ <br>
+The family crest of Borden is a lion with an axe, <br>
+Running rampant into battle, ready to attack. <br>
+It's an oddly fitting emblem for a family like this <br>
+And were killing time in the House of Borden (Killing time) . <br>
+ <br>
+In the House of Borden, there's a lock on every door; <br>
+In every room a prisoner of a long, silent war. <br>
+Let us take you to an August back 1892. <br>
+When all Hell broke loose in the House of Borden.... <br>
+ <br>
+When I was a girl, I have my father my gold ring. <br>
+He wears it to this day, a symbol of my love for him. <br>
+My middle name is Andrew; Father wanted a boy. <br>
+But I'm Daddy's Little Girl now. <br>
+ <br>
+The father loved the younger one, some say a bit too much. <br>
+They say she talks to pigeons, but who am I to judge? <br>
+I don't mean to spread a rumor, these are just things that I hear. <br>
+But there's some crazy shite in the House of Borden... <br>
+ <br>
+ <br>
+## This is Not Love - Lizzie 
+ <br>
+This, this, this is not love. <br>
+I don't know what it is. <br>
+But I know this, this is not love. <br>
+You touch with selfish hands. <br>
+This is not love. <br>
+You speak in cold demands. <br>
+This is not love. <br>
+Whatever you take, it isn't giving. <br>
+When I, I have no choice. <br>
+What kind of life am I living, <br>
+if I, I have no voice? <br>
+I don't know what it is. <br>
+ <br>
+Sometimes you say the words, <br>
+but this is not love. <br>
+After thought apologies are not enough, <br>
+to make me believe, <br>
+make me forgive you, <br>
+repair the damage done. <br>
+It isn't enough, <br>
+to say you're sorry <br>
+and still have your fun. <br>
+ <br>
+I want to feel that I can fall <br>
+and not be made to feel a fool. <br>
+I wanna look up <br>
+and see a bright light shining through. <br>
+To see arms outstretched to hold me, <br>
+wanting nothing in return, <br>
+but only for me to feel <br>
+safe and secure. <br>
+Is that too much to ask for? <br>
+Is it so wrong to want more than this? <br>
+ <br>
+Because this, this, <br>
+this is not love. <br>
+Oh, this is not love. <br>
+This is not love. <br>
+This is not love. <br>
+This is not love. <br>
+I don't know what it is, <br>
+but I want out of it. <br>
+ <br>
+## I Gotta Get Out Of Here - Lizzie and Alice 
+ <br>
+ALICE (spoken) <br>
+Lizzie? <br>
+ <br>
+LIZZIE (spoken) <br>
+Alice! <br>
+ <br>
+ALICE (spoken) <br>
+Are you alright? <br>
+ <br>
+LIZZIE (spoken) <br>
+Yes, I-I'm fine <br>
+ <br>
+ALICE (spoken) <br>
+Lizzie, what happened? <br>
+ <br>
+LIZZIE (spoken) <br>
+Nothing, I just- <br>
+ <br>
+ALICE (spoken) <br>
+Are you have troubles again with your-? <br>
+ <br>
+LIZZIE (spoken) <br>
+No, Alice-! <br>
+ <br>
+(sung) <br>
+I gotta get out of here! <br>
+ <br>
+ALICE (spoken) <br>
+Lizzie! Lizzie, listen to me! <br>
+ <br>
+LIZZIE <br>
+I gotta <br>
+I gotta <br>
+ <br>
+ALICE (spoken) <br>
+Lizzie, you can tell me anything! <br>
+ <br>
+LIZZIE <br>
+I gotta <br>
+ <br>
+ALICE (spoken) <br>
+Lizzie, I won't give you away <br>
+ <br>
+LIZZIE <br>
+I gotta <br>
+I <br>
+ <br>
+There's something hangin' over me <br>
+This thunderstorm I can't see <br>
+But I know it's there <br>
+I gotta get out of here <br>
+ <br>
+Oh, Alice, I'm afraid tonight <br>
+'Cause something doesn't feel quite right <br>
+Out there in the dark <br>
+ <br>
+This feeling comes over me <br>
+At times, no matter where I am <br>
+And I know if I stay here longer <br>
+It's gonna turn out bad <br>
+ <br>
+I gotta get out of here <br>
+I gotta get out of here <br>
+I gotta get out of here <br>
+I gotta <br>
+I gotta <br>
+I gotta <br>
+I gotta <br>
+ <br>
+I gotta go anew and have <br>
+What all the uptown people have <br>
+Don't I deserve it? <br>
+ <br>
+I gotta get out of here <br>
+I wanna go and disappear <br>
+But sis and me, we're stuck down here <br>
+And it's killing me <br>
+ <br>
+I wanna know who I am <br>
+Free and clear <br>
+I just don't know how <br>
+ <br>
+I used to hope it'd be different <br>
+No more pain and fear <br>
+But hope is disappearing now <br>
+ <br>
+Uh! <br>
+I gotta <br>
+I gotta <br>
+Uh, uh, I gotta <br>
+Uh, uh, uh, I gotta <br>
+ <br>
+And this feeling comes over me <br>
+At times, no matter where I am <br>
+ <br>
+ALICE <br>
+Stay here longer! <br>
+ <br>
+LIZZIE <br>
+And I know if I stay here longer <br>
+It's gonna turn out bad <br>
+I gotta get out of here <br>
+I gotta <br>
+I gotta <br>
+I gotta <br>
+I gotta get out of here! <br>
+ <br>
+ <br>
+## If You Knew - Alice 
+ <br>
+Always standing in your wake <br>
+With a secret of my own <br>
+Too afraid to share with you <br>
+So I come home alone <br>
+Each night and draw the curtain, shut the blind <br>
+How will you trust me with your secret when I don’t trust you with - <br>
+ <br>
+If you knew <br>
+Knew how I’ve been watching you <br>
+If you knew <br>
+Knew how I see everything you do <br>
+If you knew <br>
+Could I still touch you? <br>
+Would you let me comfort you if you knew? <br>
+ <br>
+The room is hot, the air is thick <br>
+And I can barely breathe tonight <br>
+Open the window, trim the wick <br>
+Oh, this cannot be right <br>
+For it seems to me a secret’s just a lie <br>
+And Lizzie, no-one knows the emptiness of lying more than - <br>
+ <br>
+If you knew <br>
+Knew that every night I dream of you <br>
+If you knew <br>
+Knew that in my dream I come to you <br>
+If you knew <br>
+Would you still touch me? <br>
+Would you tell me everything if you knew? <br>
+ <br>
+Together we’ll be safe <br>
+The truth will make it so <br>
+Just like my dream each night <br>
+For in my dream I know <br>
+That you are in my arms and everything is fine <br>
+Oh, Lizzie, take me to your hiding-place and I’ll take you to - <br>
+ <br>
+If you knew <br>
+Knew that in my heart I always knew <br>
+If you knew <br>
+Knew that every word I spoke was true <br>
+If you knew <br>
+i could protect you <br>
+Would you let me hold you close if you knew? <br>
+ <br>
+## The Soul Of The White Bird - Company 
+ <br>
+LIZZIE <br>
+Who are these that fly <br>
+Like a cloud to my window? <br>
+Coming with the waxing of a moon <br>
+ <br>
+To the beating of your wings <br>
+And the violins of freedom <br>
+I love you <br>
+I am hopeful <br>
+Am I doomed? <br>
+ <br>
+I clamor and I moan <br>
+That house is not my home <br>
+My silver wings are pinioned with green gold <br>
+My ghost <br>
+My dove <br>
+My innocence <br>
+My love <br>
+Am I utterly forgotten? <br>
+Left alone <br>
+ <br>
+LIZZIE (spoken) <br>
+The boys <br>
+Wanna come <br>
+Wanna play <br>
+With my pigeons <br>
+And you never let the boys come, boys come, boys come <br>
+Hand on my knee, on my... never let the boys come <br>
+Chasing all the boys away <br>
+I feel myself disintegrate <br>
+Oh, please daddy, please daddy <br>
+If I stay with you, daddy <br>
+Fingers on my knee, daddy <br>
+Stop it, stop it, stop it, daddy <br>
+Fingers on my, fingers on my, boys pigeons fingers daddy <br>
+Stop it <br>
+Stop it <br>
+Daddy <br>
+ <br>
+BRIDGET <br>
+And if there are survivors <br>
+They will be on the mountain <br>
+Like doves of the valley <br>
+All of them moaning <br>
+ <br>
+ALL <br>
+Oh, that I had wings like a dove <br>
+I would fly away <br>
+Be at rest <br>
+ <br>
+LIZZIE (spoken) <br>
+Lock away your secrets <br>
+Lock away my life <br>
+What if I unlocked your secrets <br>
+To your stupid little wife? <br>
+I want a new dress, daddy! <br>
+Need some money for a new dress <br>
+New dress daddy money please daddy please <br>
+I want a new dress <br>
+Dress like all the girls up on the hill <br>
+And all the boys and pretty dresses <br>
+Pretty dresses, pretty boys and girls <br>
+Come 'round to the pretty houses pretty penny <br>
+Hand on my knee, on my fingers, on my, pretty penny <br>
+ <br>
+BRIDGET <br>
+And the soul of the white bird <br>
+On the wings of six black birds <br>
+Will be carried in the night <br>
+To the mountain <br>
+ <br>
+ALL <br>
+Oh, Lord, do not deliver <br>
+The soul of the white bird <br>
+The soul of the white bird <br>
+To the wild beast <br>
+ <br>
+ALICE (spoken) <br>
+Lizzie, don't! <br>
+ <br>
+LIZZIE (spoken) <br>
+Is that you, Alice? <br>
+ <br>
+ALICE (spoken) <br>
+Yes. Lizzie, I've been looking all over for you <br>
+ <br>
+LIZZIE (spoken) <br>
+Are you alone? <br>
+ <br>
+ALICE (spoken) <br>
+Yes <br>
+ <br>
+LIZZIE (spoken) <br>
+Then come up. Come up and see them. <br>
+Father says birds are filthy, but I think they're beautiful <br>
+ <br>
+## Maybe Someday - Alice 
+ <br>
+ALICE <br>
+Maybe someday <br>
+Your heart will be open <br>
+Maybe someday <br>
+You will know <br>
+Maybe someday <br>
+I will make you see <br>
+That your secret's safe now <br>
+ <br>
+LIZZIE <br>
+My secret's safe now <br>
+ <br>
+ALICE <br>
+Your secret's safe now <br>
+With me <br>
+ <br>
+ <br>
+## "The Will" - Company 
+ <br>
+## Sweet Little Sister - Company 
+ <br>
+Emma: <br>
+I was a trembling child, just twelve years old, <br>
+When Mother placed you in my arms. <br>
+You were only two, you never knew, <br>
+My sweet, little sister. <br>
+She touched my face and she pulled me close. <br>
+Then Mama whispered in my ear, <br>
+"Don't let her go, don't let her know, <br>
+Your sweet, little sister." <br>
+For years I tried to be to you all the things she was to me. <br>
+I tried to give you all the love you needed. <br>
+But now I feel, with out a word, <br>
+I've told you everything. <br>
+And now I hear a warning, and it must be heeded. <br>
+Sweet, little sister, I'm so afraid to leave you. <br>
+Sweet, little sister, I've got to get away. <br>
+I was a dark sought girl of 14 years, <br>
+When Father married his new wife. <br>
+You were only four, <br>
+So I kept score my sweet little sister. <br>
+She touched his face and pulled him close. <br>
+ <br>
+Lizzie, overlapping: <br>
+Huh-huh-huh <br>
+ <br>
+Emma: <br>
+And then she whispered in his ear, <br>
+ <br>
+Lizzie, overlapping: <br>
+Huh-huh-huh <br>
+ <br>
+Both: <br>
+He let us go, she runs the show, <br>
+My sweet little sister. <br>
+ <br>
+Lizzie: <br>
+For years I tried to keep you safe <br>
+from the darkness in my heart. <br>
+But now I see my troubles were detected. <br>
+ <br>
+Emma: <br>
+I look into your cold, <br>
+Green eyes and they tell me everything. <br>
+Now I know that no one's been protected. <br>
+Sweet, little sister. What I don't see. <br>
+ <br>
+Lizzie: <br>
+What you don't see. <br>
+ <br>
+Emma: <br>
+Sweet, little sister, I could never hurt you. <br>
+ <br>
+Lizzie: <br>
+No never hurt you. <br>
+Sweet sister, what you don't know. <br>
+ <br>
+Emma: <br>
+What I don't know. <br>
+Sweet, little sister, I can never show. <br>
+Sweet, little sister, I'm so afraid to leave you. <br>
+Sweet, little sister, I'm more afraid to stay. <br>
+Sweet, little sister, I'm scared of what may happen. <br>
+Sweet, little sister, I've got to get away. <br>
+I've got to get away. <br>
+I've got to get away. <br>
+ <br>
+ <br>
+## Shattercane And Velvet Grass - Company 
+ <br>
+Bridget: <br>
+Fire burn, and toil <br>
+Kettle bubble, water boil. <br>
+Assam, Salem, <br>
+Bitter trouble, very strong <br>
+ <br>
+Lizzie: (spoken) <br>
+Prussic acid is one of the most rapidly acting toxins <br>
+which affects mammals. <br>
+ <br>
+Bridget: <br>
+Black leaves, and steep <br>
+Settle cozy, dark as sleep <br>
+Oh soothe this day <br>
+Milk and sugar, cup o’ tea <br>
+ <br>
+Lizzie: (spoken) <br>
+Several common plants can accumulate large quantities. <br>
+ <br>
+Lizzie, counterpoint to Bridget: (spoken) <br>
+Shattercane and velvet grass, <br>
+Sorghum and white clover, <br>
+Millipedes and bergamot, <br>
+Flax when winter’s over. <br>
+Cherry stones and apricots, <br>
+Pale and milky silent <br>
+Poison for it’s Prussian blue.. <br>
+ <br>
+Bridget, counterpoint to Lizzie: <br>
+Fire burn, and toil <br>
+Kettle bubble, water boil. <br>
+Assam, Salem, <br>
+Bitter trouble, very strong. <br>
+Black leaves, and steep <br>
+Settle cozy, dark as sleep <br>
+Oh soothe this day <br>
+Milk and sugar, cup o’ tea <br>
+ <br>
+Lizzie: <br>
+Ferric phenyl cyanide, 300 parts per million. <br>
+Prussic acid, blue-ish clear, protoplasmic poison. <br>
+Boils at 26 degrees and faintly tastes of almonds. <br>
+Death is by paralysis of heart and respiration. <br>
+Passes through unbroken skin. <br>
+Careful, for it’s found within… <br>
+ <br>
+Shattercane and velvet grass, <br>
+Sorghum and white clover, <br>
+Millipedes and bergamot, <br>
+Flax when winter’s over. <br>
+Cherry stones and apricots, <br>
+Pale and milky silent <br>
+Poison for it’s Prussian blue, <br>
+Beautiful and violent. <br>
+ <br>
+Following directions in the Book of Household Poisons. <br>
+Just a drop dropped in the milk <br>
+And hope that she’ll enjoy some. <br>
+Mind you don’t forget to close your eyes and hold your breath. <br>
+But <br>
+Wouldn’t it be easy, now? <br>
+A perfect little death. <br>
+Just drop a grain into her tea, <br>
+Mrs Borden, R.I.P. <br>
+ <br>
+Lizzie, counterpoint to Bridget: <br>
+Shattercane and velvet grass, <br>
+Sorghum and white clover, <br>
+Millipedes and bergamot, <br>
+Flax when winter’s over. <br>
+Cherry stones and apricots, <br>
+Pale and milky silent <br>
+Poison for it’s Prussian blue, <br>
+Beautiful and violent. <br>
+ <br>
+Bridget, counterpoint to Lizzie: <br>
+Fire burn, and toil <br>
+Kettle bubble, water boil. <br>
+Assam, Salem, <br>
+Bitter trouble, very strong. <br>
+Black leaves, and steep <br>
+Settle cozy, dark as sleep <br>
+Oh soothe this day <br>
+Milk and sugar, cup o’ tea <br>
+ <br>
+ <br>
+## "The Milk" - Lizzie and Alice 
+ <br>
+## Will You Stay? - Lizzie and Alice 
+ <br>
+LIZZIE (spoken) <br>
+I'm afraid somebody will do something. <br>
+I don't know what, but somebody will do something <br>
+ <br>
+(sung) <br>
+I want to sleep <br>
+With my eyes half open <br>
+One eye open half the time <br>
+ <br>
+ALICE <br>
+But if you close your eyes you'll see <br>
+The golden pear it hides the key <br>
+That can open up your heart <br>
+And end your toil <br>
+See how they ripen on the bough <br>
+Now they're falling to the ground <br>
+To be gathered up in skirts <br>
+Before they soil <br>
+ <br>
+Will you lay next to me <br>
+In the shade of the tree <br>
+Will you bite through the skin <br>
+To the sweet flesh within <br>
+Will you rest a while <br>
+Let me bring back your smile <br>
+Will you lay next to me <br>
+Will you stay <br>
+ <br>
+LIZZIE (spoken) <br>
+I've ought to be on my way <br>
+ <br>
+ALICE <br>
+The pear is jealous of the rose <br>
+Because she hears of all your woes <br>
+But she never gets a chance <br>
+To taste your pleasure <br>
+And though she's luscious to the taste <br>
+She's always eaten in great haste <br>
+For the autumn winds that blow <br>
+Steal all her treasure <br>
+ <br>
+Will you lay next to me <br>
+In the shade of the tree <br>
+Will you bite through the skin <br>
+To the sweet flesh within <br>
+Will you rest a while <br>
+Let me bring back your smile <br>
+Will you lay next to me <br>
+Will you stay <br>
+ <br>
+Sleep sleep sleep <br>
+I'll keep my eyes half open <br>
+One eye open all the time <br>
+ <br>
+ <br>
 ## Why Are All These Heads Off? - Bridget, Lizzie and Alice
-
-BRIDGET (spoken)
-Miss Lizzie, your father doesn't want you nor Miss Russell
-up in the barn no more
-
-LIZZIE (spoken)
-Maggie? What do you have there?
-
-BRIDGET
-Listen to me, Lizzie, it's bad
-And I don't know how to say this
-But your father saw you in the barn
-He saw you go up there with Alice
-
-He said, "I told her to leave those birds alone
-They're sick and dark and filthy"
-Then he took an axe and chopped their heads off
-One by one he killed them
-
-LIZZIE
-The sound of beating pigeon wings
-Is ringing in my ears
-And the taste of blood is on my tongue
-And it's been rising up for years
-
-My world is growing darker
-He is shutting out the light
-There's no way out of this pressure cooker
-No way out alive
-
-BRIDGET, LIZZIE, ALICE
-Why are all these heads off?
-Why are all these heads off?
-Why are all these heads off?
-Why are all these heads off?
-
-ALICE
-Why? Why? Why?
-
-BRIDGET, LIZZIE, ALICE
-Why are all these heads off?
-Why are all these heads off?
-Why are all these heads off?
-Why are all these heads
-
-ALICE
-Wait, wait, wait
-Everything is fine, Lizzie
-We will find a better way
-If you stay with me, Lizzie
-I will protect you
-
-BRIDGET
-There are two sides, Lizzie
-You didn't choose what side you're on
-
-ALICE
-But there is right!
-
-BRIDGET
-And there is wrong!
-
-LIZZIE
-And I will choose my weapon!
-
-BRIDGET, LIZZIE, ALICE
-Why are all these heads off?
-Why are all these heads off?
-Why are all these heads off?
-Why are all these heads off?
-
-ALICE
-Why? Why? Why?
-
-BRIDGET, LIZZIE, ALICE
-Why are all these heads off?
-Why are all these heads off?
-Why are all these heads off?
-Why are all these heads off?
-
-ALICE
-Why? Why? Why?
-
-LIZZIE
-I'm standing looking forward in the dark
-A feeling brushes past me
-And I know the wind has changed
-
-## Mercury Rising - Company
-
-BRIDGET
-Air stands still
-Thick with rain
-And it hasn't yielded
-Thunder rumbles low
-But still no storm
-
-Foul winds blow
-Leave a strange
-Metallic aftertaste
-And carry whispers
-Too soft to hear
-
-Mercury rises
-As the drops
-Of stifled rage
-Collecting weight
-Begin to fall
-
-BRIDGET, LIZZIE
-Ahh
-
-BRIDGET
-Ancestral blood
-Stains a daughter's
-Ivory hand
-And splatter o'er
-The reeking floor
-
+ <br>
+BRIDGET (spoken) <br>
+Miss Lizzie, your father doesn't want you nor Miss Russell <br>
+up in the barn no more <br>
+ <br>
+LIZZIE (spoken) <br>
+Maggie? What do you have there? <br>
+ <br>
+BRIDGET <br>
+Listen to me, Lizzie, it's bad <br>
+And I don't know how to say this <br>
+But your father saw you in the barn <br>
+He saw you go up there with Alice <br>
+ <br>
+He said, "I told her to leave those birds alone <br>
+They're sick and dark and filthy" <br>
+Then he took an axe and chopped their heads off <br>
+One by one he killed them <br>
+ <br>
+LIZZIE <br>
+The sound of beating pigeon wings <br>
+Is ringing in my ears <br>
+And the taste of blood is on my tongue <br>
+And it's been rising up for years <br>
+ <br>
+My world is growing darker <br>
+He is shutting out the light <br>
+There's no way out of this pressure cooker <br>
+No way out alive <br>
+ <br>
+BRIDGET, LIZZIE, ALICE <br>
+Why are all these heads off? <br>
+Why are all these heads off? <br>
+Why are all these heads off? <br>
+Why are all these heads off? <br>
+ <br>
+ALICE <br>
+Why? Why? Why? <br>
+ <br>
+BRIDGET, LIZZIE, ALICE <br>
+Why are all these heads off? <br>
+Why are all these heads off? <br>
+Why are all these heads off? <br>
+Why are all these heads <br>
+ <br>
+ALICE <br>
+Wait, wait, wait <br>
+Everything is fine, Lizzie <br>
+We will find a better way <br>
+If you stay with me, Lizzie <br>
+I will protect you <br>
+ <br>
+BRIDGET <br>
+There are two sides, Lizzie <br>
+You didn't choose what side you're on <br>
+ <br>
+ALICE <br>
+But there is right! <br>
+ <br>
+BRIDGET <br>
+And there is wrong! <br>
+ <br>
+LIZZIE <br>
+And I will choose my weapon! <br>
+ <br>
+BRIDGET, LIZZIE, ALICE <br>
+Why are all these heads off? <br>
+Why are all these heads off? <br>
+Why are all these heads off? <br>
+Why are all these heads off? <br>
+ <br>
+ALICE <br>
+Why? Why? Why? <br>
+ <br>
+BRIDGET, LIZZIE, ALICE <br>
+Why are all these heads off? <br>
+Why are all these heads off? <br>
+Why are all these heads off? <br>
+Why are all these heads off? <br>
+ <br>
+ALICE <br>
+Why? Why? Why? <br>
+ <br>
+LIZZIE <br>
+I'm standing looking forward in the dark <br>
+A feeling brushes past me <br>
+And I know the wind has changed <br>
+ <br>
+## Mercury Rising - Company 
+ <br>
+BRIDGET <br>
+Air stands still <br>
+Thick with rain <br>
+And it hasn't yielded <br>
+Thunder rumbles low <br>
+But still no storm <br>
+ <br>
+Foul winds blow <br>
+Leave a strange <br>
+Metallic aftertaste <br>
+And carry whispers <br>
+Too soft to hear <br>
+ <br>
+Mercury rises <br>
+As the drops <br>
+Of stifled rage <br>
+Collecting weight <br>
+Begin to fall <br>
+ <br>
+BRIDGET, LIZZIE <br>
+Ahh <br>
+ <br>
+BRIDGET <br>
+Ancestral blood <br>
+Stains a daughter's <br>
+Ivory hand <br>
+And splatter o'er <br>
+The reeking floor <br>
+ <br>
 ## Somebody Will Do Something - Company
-
-BRIDGET
-Somebody will do something
-Somebody will take something
-Somebody will strike something
-Somebody will die
-
-LIZZIE
-Axe Fall River runs red!
-
-Maggie's washing windows
-Father takes a walk
-Stepmother goes upstairs
-And I can hardly talk
-I'm so afraid
-I went down to the cellar
-And searched behinds some stacks
-My eyes they never say it
-But my hands they found the axe
-I'm so afraid
-
-ALL
-Somebody will do something
-Somebody will take something
-Somebody will strike something
-Somebody will die
-
-LIZZIE
-I step onto the staircase
-Stepmother hears me not
-I step into the bedroom
-Oh Lizzie, what have you got
-I'm so afraid
-
-EMMA
-Gotta get out of here
-Gotta get out of here
-Gotta get out of here
-Gotta get out of here
-Gotta get out of here
-Gotta get out of here
-Gotta get out of here
-Gotta get out of here
-
-ALL
-Somebody will do something
-Somebody will take something
-Somebody will strike something
-Somebody will die
-
-BRIDGET (spoken)
-Oh, miss Lizzie! You startled me!
-Mr. Borden's just come home,
-he said to keep the noise down.
-He'll be napping in the living room
-and doesn't want to be disturbed
-
-LIZZIE (spoken)
-Maggie, you are going out this afternoon?
-
-BRIDGET (spoken)
-Oh, I don't know. I might and I might not.
-I don't feel very well
-
-LIZZIE (spoken)
-If you go out make sure to lock the door
-for Mrs. Borden has gone out on a sick call
-and I might go out too
-
-BRIDGET (spoken)
-Miss Lizzie, who is sick?
-
-LIZZIE (spoken)
-I don't know. Somebody
-
-BRIDGET (spoken)
-Somebody?
-
-LIZZIE (spoken)
-Yes. She had a note from somebody this morning.
-It must be in town.
-There is a cheap sale of dresses at Sergeant's this afternoon.
-Pennies on the yard
-
-BRIDGET (spoken)
-I'm going to have a lovely one
-
-LIZZIE
-With Maggie so retired
-Stepmother quite undone
-Father will be napping
-He'll wish he had that son
-I'm so afraid
-
-ALL
-Somebody will do something
-Somebody will take something
-Somebody will strike something
-Somebody will
-Somebody will die
-
-LIZZIE (spoken)
-Maggie! Go and get Miss Russell.
-I don't want to be alone in this house
-
-BRIDGET (spoken)
-What's the matter?
-
-LIZZIE (spoken)
-Father is dead.
-Somebody came in and killed him
-
-## "Forty Whacks"(Entr’acte) - Band
-
-
-## The Fall Of The House Of Borden/"The Alibi" - Bridget, Lizzie and Alice
-
-BRIDGET
-In the house of Borden
-Somebody left us quite a mess
-Splattered blood and brains on everything
-Except on Lizzie's dress
-
-It's a crime scene, it's a nightmare
-It's a bloodbath, it's a fright
-It's a butcher's shop in the house of Borden
-
-A mob is gathering outside
-Half the town is in the yard
-The press is in a frenzy
-Cops are standing guard
-
-It must've been a lunatic
-A foreigner, a beast
-But it's just us girls in the house of Borden
-
-LIZZIE (spoken)
-I was in the backyard
-
-ALICE (spoken)
-Did you see anyone or hear anything?
-
-LIZZIE (spoken)
-I saw no one. Heard no screams
-
-ALICE (spoken)
-Where were you in the yard?
-
-LIZZIE (spoken)
-I was up in the barn loft
-
-ALICE (spoken)
-Why would you go up there after... what happened?
-
-LIZZIE (spoken)
-I went out to get a... lead sinker for my fishing trip.
-I heard a distressing noise, like scraping,
-And came back and found the screen door open
-
-ALICE (spoken)
-How long were you up there?
-
-LIZZIE (spoken)
-Twenty minutes?
-
-ALICE (spoken)
-It must've been sweltering!
-
-LIZZIE (spoken)
-I ate some pears
-
-BRIDGET
-Lizzie was in the backyard
-Or did she say the barn?
-It's only been a day now
-And she's spinning quite a yarn
-
-What we know for sure
-Is there were four and now there's two
-There's no coming back to the house of Borden
-
-In the house of Borden
-Somebody left us quite a mess
-Splattered blood and brains on everything
-Except on Lizzie's dress
-
-It's a crime scene, it's a nightmare
-It's a bloodbath, it's a fright
-And it blew the roof off the house of Borden
-
-We laid them out in the dining room
-It's going on day two
-I know it sounds disgusting
-But it's 1892
-
-There's no AC
-It's August
-And it's ninety-five degrees
-Well, you do the math
-
-
-## What The Fuck Now, Lizzie? - Emma and Lizzie
-
-Lizzie: Emma? Is that you?
-Emma: My sweet little sister, what have you done?
-Lizzie: Well I wasn't gonna wait for an engraved invitation.
-Emma: Now I've got twice the trouble, got two for one.
-Lizzie: Stop your bitchin', can't you see a win-win situation?
-Emma: What the fuck?!
-What the fuck, what the fuck, what the fuck now, Lizzie?!
-Lizzie: Well he ain't crawling back into bed now is he?
-Emma: No
-Lizzie, my love, is this the best that you could do?
-Damned, if I leave you alone for a minute!
-What possessed you to murder the old man too?
-Made a deal, had a plan, and an axe wasn't in it!
-What the fuck! What the fuck, what the fuck,
-What the fuck now, Lizzie?!
-Lizzie: Well he ain't comin' round in the dark now is he?
-Emma: What the fuck! What the fuck, what the fuck,
-What the fuck now Lizzie?!
-Lizzie: And she ain't gonna get all the dough now is she?
-Emma: No.
-Lizzie: No.
-Both: No, no.
-Lizzie: A foolish, not to say, a sorry sight.
-Emma: Did he look? Did he blink? Did he know who did him?
-Lizzie: My hands are red but I wear a heart so wide.
-Both: Who would've thought the old man had so much blood in him?
-Emma: What's done is done, but there's a knocking at the gate.
-Gotta clean up the scene, gotta act like we're normal.
-Get your shit together, get your story straight.
-Gotta talk to a cop, gotta cry at a funeral.
-What the fuck! What the fuck, what the fuck,
-What the fuck now Lizzie?!
-Lizzie: Well he ain't gonna lock all the doors now is her?
-Emma: What the fuck! What the fuck,
-What the fuck, what the fuck now, Lizzie?
-Emma: Well she ain't gonna get all the dough now is she? No.
-(Emma continues her "What the Fuck"s
-and Lizzie continues her "No"s 3 times.)
-Lizzie: Well, he ain't coming round in the dark now is he?
-Both: No (4 times)
-Lizzie: Sister, put on your nightgown- got to bed.
-Emma: Gotta figure out a plan, gotta spring into action.
-Lizzie: Ain't nobody home but the sleeping and the dead.
-Gonna sleep tonight in sweet satisfaction.
-
-## "The Dress" - Company
-
-## Burn The Old Thing Up - Company
-
-LIZZIE
-Fire burns
-Small dark figures
-You and I
-
-EMMA
-Don't let them see
-
-LIZZIE
-Don't let them see
-How the fire burns
-
-EMMA & LIZZIE
-Fire burns
-
-EMMA
-Smoke rises
-Black as night
-Blocks the light
-
-EMMA & LIZZIE
-From deep inside
-
-Burn the old thing up
-Burn the old thing up
-Burn the old thing
-Burn the old thing
-Burn the old thing up
-
-LIZZIE
-Fire burns
-Small dark figures
-You and I
-
-EMMA
-Don't let them see
-
-LIZZIE
-Don't let them see
-How the fire burns
-
-EMMA & LIZZIE
-Fire burns
-
-EMMA
-Smoke rises
-Black as night
-Blocks the light
-
-EMMA & LIZZIE
-From deep inside
-
-Burn the old thing up
-Burn the old thing up
-Burn the old thing
-Burn the old thing
-Burn the old thing up
-
-ALL
-Oooh, ahhh, ahhh, ahhh
-
-EMMA & LIZZIE
-Burn the old thing up
-Burn the old thing up
-Burn the old thing
-Burn the old thing
-Burn the old thing up
-
-ALICE & BRIDGET
-Burn burn up
-Burn burn up
-Burn
-Burn
-Burn the old thing up
-
-EMMA
-Burnt down to the ground everything
-
-LIZZIE
-All that was
-
-EMMA
-All that was
-Burn it down
-
-
-## Questions Questions - Company
-
-ALICE
-Answering questions questions
-More and more questions questions
-Every day questions questions
-Filling my mind with questions
-
-ALL
-Answering questions questions
-More and more questions questions
-Every day questions questions
-Filling my mind with questions
-
-ALICE
-What do you know
-Who told you that
-What's that you say
-Who would do this to them
-What did you see
-Were you alone
-See anybody else
-Were there strangers around
-
-ALL
-Answering questions questions
-More and more questions questions
-Every day questions questions
-Filling my mind with questions
-
-ALICE
-What do you know
-
-BRIDGET
-Did you know that they've been murdered
-
-ALICE
-Who told you that
-
-EMMA
-Did you see it with you own eyes
-
-ALICE
-What's that you say
-
-LIZZIE
-Did he have enemies
-
-ALICE
-Who would do this to them
-What did you see
-
-BRIDGET
-Where were you when it happened
-
-ALICE
-Were you alone
-
-EMMA
-Did your mother have a visitor
-
-ALICE
-See anybody else
-
-LIZZIE
-Near the house on the
-
-ALICE
-Were there strangers around
-
-ALL
-Answering questions questions
-More and more questions questions
-Every day questions questions
-Filling my mind with questions
-
-ALICE
-How about at home
-
-BRIDGET
-Was everybody cordial
-
-ALICE
-Did they share all their meals
-
-EMMA
-Did you ever call her mother
-
-ALICE
-And what about your dad
-
-LIZZIE
-Cash or bonds property
-
-ALICE
-Had he written a will
-
-BRIDGET
-Have you ever used a hatchet
-
-ALICE
-Any weapons found
-
-EMMA
-Did your father kill some pigeons
-
-ALICE
-And what about an axe
-
-LIZZIE
-Did you buy poison there
-
-ALICE
-Then what did she do
-Was everybody sick
-
-ALL
-Answering questions questions
-More and more questions questions
-Every day questions questions
-Filling my mind with questions
-Answering questions questions
-More and more questions questions
-Every day questions questions
-Filling my mind with questions
-
-ALICE
-What did you hear
-
-BRIDGET
-What time did you hear it
-
-ALICE
-Did it sound like a groan
-
-EMMA
-Or maybe like a scraping
-
-ALICE
-Did she go to the barn
-
-LIZZIE
-Did you laugh on stairs
-
-ALICE
-Was there blood on her hands
-What did she wear
-
-BRIDGET
-Was she wearing a blue dress
-
-ALICE
-Was it stained at the hem
-
-EMMA
-She change it to a new one
-
-ALICE
-See blood on the skirt
-
-LIZZIE
-Are you sure just a drop
-
-ALICE
-Did she burn the thing up
-
-..................
-..................
-
-
-## Will You Lie? - Company
-
-ALICE
-Stop, stop, stop
-The lies are all half-spoken
-Half-lies spoken all the time
-
-LIZZIE
-But if you close your eyes you'll see
-My golden pear, you hide a key
-That can lock a secret in and never tell
-
-The fruit of sin weighed on the bough
-Somebody came in and cut them down
-Now they've fallen to the ground with no farewell
-
-Will you lie here for me
-With your lips silently?
-Will you bite through the skin
-To the sweet truth within?
-Will you rest for a while?
-Let me bring back your smile
-Will you lie here for me?
-Will you stay?
-
-ALICE
-The pear is frightened of the rose
-For now your thorns are all she knows
-And she's seen the pain
-That comes with your displeasure
-And though the prick is most unkind
-You think it leaves no trace behind
-But it leaves a drop of blood
-Upon the measure
-
-LIZZIE
-Will you lie here for me
-With your lips silently?
-Will you bite through the skin
-To the sweet truth within?
-Will you bite through the skin
-To the sweet truth within?
-Will you rest for a while?
-Let me bring back your smile
-Will you lie here for me?
-Here for me
-Are you?
-Will you
-Stay?
-Stay
-Will you?
-
-(spoken)
-What are you going to tell them?
-
-ALICE (spoken)
-The truth
-
-LIZZIE (spoken)
-The truth? I want to know the truth
-
-ALICE (spoken)
-I saw you. I saw miss Lizzie Borden burn that dress!
-
-
-## Watchmen For The Morning - Bridget, Emma and Lizzie
-
-EMMA & LIZZIE
-Out of the depths I cry to thee
-Lord, Lord hear my voice
-Let thy ears be attentive
-To the voice of my prayer
-
-My soul waits for the Lord
-And in his word I hope
-My soul waits for the Lord
-More than watchmen
-For the morning
-
-LIZZIE (spoken)
-Emma, are you going to give me away?
-
-EMMA (spoken)
-No Lizzie, I won't
-
-LIZZIE (spoken)
-Yes you will. But I will let you see.
-I won't give in one inch
-
-EMMA & LIZZIE
-If thou should mark iniquities
-Lord, Lord who could stand
-But there is forgiveness with thee
-That thou may be feared
-
-My soul it waits
-It waits for the Lord
-And in
-And in his word I hope
-My soul waits for the Lord
-More than watchmen
-For the morning
-More than watchmen
-For the morning
-More than watchmen
-For the morning
-
-## Maybe Someday (Reprise 1) / Thirteen Days In Taunton - Company
-
-LIZZIE (spoken)
-My name is Lizzie Andrew Borden. Not Elizabeth.
-Lizzie. Andrew, after my father,
-I was so christened. I am innocent.
-I leave it to my council to speak for me
-
-(sung)
-Maybe someday
-I'll walk in the open
-
-EMMA (spoken)
-My full name is Emma L. Borden,
-I am the sister of miss Lizzie Borden
-
-LIZZIE
-Maybe someday
-We'll all forget
-
-BRIDGET (spoken)
-The name's Bridget Sullivan.
-I was sometimes called Maggie by miss Emma and miss Lizzie
-
-LIZZIE
-Maybe someday
-They won't whisper point and stare
-
-ALICE (spoken)
-I am Alice Russell
-
-LIZZIE
-But my secret's safe now
-
-ALICE (spoken)
-I exchanged calls with miss Lizzie Borden regularly.
-She always received me upstairs
-
-LIZZIE
-My secret's
-Safe
-Now
-
-ALICE (spoken)
-Lizzie spoke of trouble with her stepmother.
-That Mrs. Borden thought so-and-so.
-But the whole thing was, as far as I could see,
-that one's own mother might've had more influence over the father.
-It was the father more than the mother.
-They were young girls.
-But young girls cannot go and do and have
-
-LIZZIE
-They tried to keep me down
-But I said no
-I'm moving uptown honey
-It's where I'm gonna go
-But I'm down here in the big house
-Help me count the days
-I've got thirteen days in Taunton
-Then I'll fly away
-
-EMMA (spoken)
-I have no recollection of anything of that kind.
-No sir, I don't seem to remember it.
-I don't remember what you asked me.
-I don't remember the question, nor the answer.
-I can only say I don't remember giving it.
-I don't know whether I did or not, I can't tell you.
-I don't know. I was in Fairhaven
-
-LIZZIE
-I got my dream team workin'
-On my defense
-It cost me a bloody fortune
-But I spared no expense
-'Cause let me tell you
-Losing is not a game I play
-I'll be leaving by the front door
-When I fly away
-I got twelve more days in Taunton
-And then I'll fly away
-I got
-Then I'll fly away
-
-ALICE (spoken)
-About seven o'clock on the evening of Wednesday,
-August third I was waiting for miss Lizzie Borden.
-But when she came she said-
-
-BRIDGET (spoken)
-She was on her way
-to Benson's pharmacy for prussic acid.
-To clean a stain
-
-ALICE (spoken)
-She said "Mr. and Mrs. Borden were awfully sick last night.
-We were all sick, all but Maggie."
-
-BRIDGET (spoken)
-I had a sick headache and I was sick to my stomach
-
-ALICE (spoken)
-And she said Mrs. Borden even told the doctor
-she thought she had been poisoned.
-I asked her who would do something like that and she didn't know.
-She said "I can't sleep at night.
-I'm that afraid somebody will do something."
-
-EMMA & LIZZIE
-Now that you mention it I
-Can't stand the night
-I sit here in the darkness
-Waiting for the light
-
-LIZZIE
-Eleven days in Taunton waiting
-For the break of day
-Ten more days in this hole
-Then I'll fly away
-
-They love me in the jailhouse
-They love me in the street
-They love me in the courtroom
-Yeah I know I got 'em beat
-I got nine more days in Taunton
-
-ALICE
-This
-This
-This is not love
-I don't know what it is
-
-LIZZIE
-When this whole thing is over
-I've got to get away
-
-EMMA (spoken)
-Well, I don't know how to describe it to you
-
-BRIDGET (spoken)
-It was not a Calico dress
-
-ALICE (spoken)
-It was a cheap cotton Bedford cord
-
-EMMA (spoken)
-An American cloth
-
-ALICE (spoken)
-All cotton
-
-EMMA (spoken)
-I think one part of it was black or very-
-
-BRIDGET (spoken)
-Light blue
-
-ALICE (spoken)
-With a small dark figure
-
-BRIDGET (spoken)
-A sprig
-
-ALICE (spoken)
-I did not suggest to miss Lizzie Borden that she change her dress
-
-EMMA (spoken)
-I think she did
-
-ALICE (spoken)
-I saw no blood on that dress. Not a drop
-
-LIZZIE
-Can we just drop the dress talk
-The subject's getting dull
-
-LIZZIE & BRIDGET
-Gonna buy myself a brand new dress
-Gonna buy a whole damn closet full
-'Cause I got plenty of money
-Girl, I just got paid
-
-LIZZIE
-Four more days in Taunton
-Then I'll fly away
-
-BRIDGET (spoken)
-After Mrs. Borden told me to wash the windows,
-I didn't see her anymore until I found her dead on the upstairs.
-I don't remember to have heard a sound
-Of anyone about the house until Mr. Borden came to the door.
-As I unlocked it I said "Oh,
-P'shaw" and miss Lizzie laughed at the top of the stairs
-
-LIZZIE
-You say that I'm not weeping
-That I'm not dressed in black
-Call me a Yankee Clytemnestra
-Well imagine that
-I've done my share of crying
-Lord my dues is paid
-I got three more days in Taunton
-Then I'll fly away
-
-ALICE (spoken)
-Her sister turned and said "What are you going to do?"
-
-EMMA (spoken)
-I swear I didn't say it.
-The reason I say I didn't say so is because I didn't say so
-
-ALICE (spoken)
-And Lizzie said "I'm going to burn this old thing up."
-
-EMMA (spoken)
-There was nothing of that kind said
-
-ALICE (spoken)
-It was covered in-
-
-EMMA (spoken)
-Paint! It was soiled, just as any dress would get soiled
-And I said "Why don't you?" or something like that.
-I can't tell the exact words
-
-ALICE (spoken)
-I am quite sure I left the room and told the officer
-That I saw miss Lizzie Borden burn that dress
-
-ALICE & LIZZIE
-Turn of the century
-Turn of the screw
-Turn of the tables
-Between me and you
-
-LIZZIE
-Got two more days in Taunton
-Until my judgement day
-One more day in Taunton
-Then I'll fly away
-
-They take me to the courthouse
-The verdict's coming in
-It only took an hour
-For those white-haired gentlemen
-To put this all behind me
-Oh, today's the day
-When the old man says
-
-VOICEOVER
-"Not guilty!"
-
-LIZZIE
-Watch me fly away
-
-EMMA
-Maybe someday
-
-LIZZIE
-I'll walk in the open
-
-EMMA
-Maybe someday
-
-LIZZIE
-We'll all forget
-
-EMMA
-Maybe someday
-
-LIZZIE
-They won't whisper point and stare but my secret's safe now
-
-EMMA
-Yes your secret's safe
-
-EMMA & LIZZIE
-Our secret's safe now
-Maybe someday
-We'll tell the world
-Maybe someday
-We'll make them understand
-
-ALICE
-Maybe someday
-You'll come back to me
-
-EMMA
-But your secret's safe now
-
-ALICE & BRIDGET
-Her secret's safe now
-
-EMMA
-Our secret's safe
-
-BRIDGET
-Our secret's safe
-
-ALICE
-Our secret's safe
-
-ALICE, BRIDGET, EMMA
-Now
-
-
-## "Maybe Someday (Reprise 2)" - Company
-
-## Into Your Wildest Dreams (Epilogue) - Company
-
-LIZZIE
-I'll fly
-Into your wildest dreams I'll
-Fly
-Upon my silver wings I'll
-Fly
-Fly
-Fly
-Fly
-
-LIZZIE
-Fly
-You'll see my face in every
-Night sky
-You'll hear my voice in every
-Long goodbye
-Into your wildest dreams
-
-ALICE, BRIDGET, EMMA
-And the soul of the white bird
-Will be carried to the mountain
-And the soul
-Fly
-And the soul of the white bird
-Will be carried to the mountain
-And the soul
-Into your wildest dreams
-Fly
-Into your wildest dreams I'll
-Fly
-Into your wildest dreams
-Into your wildest dreams
-Into your wildest dreams
-
-LIZZIE
-I'll
-Fly
-Fly
-Fly
-
-I'll
-Fly
-
-## Forty Whacks (Curtain) - Company
-
-BRIDGET
-Two, three, four!
-
-ALL
-Lizzie Borden took an axe
-Gave her mother forty whacks
-When she saw what she had done
-Gave her father forty-one
-
-Lizzie Borden took an axe
-Gave her mother forty whacks
-When she saw what she had done
-Gave her father forty-one
-
+ <br>
+BRIDGET <br>
+Somebody will do something <br>
+Somebody will take something <br>
+Somebody will strike something <br>
+Somebody will die <br>
+ <br>
+LIZZIE <br>
+Axe Fall River runs red! <br>
+ <br>
+Maggie's washing windows <br>
+Father takes a walk <br>
+Stepmother goes upstairs <br>
+And I can hardly talk <br>
+I'm so afraid <br>
+I went down to the cellar <br>
+And searched behinds some stacks <br>
+My eyes they never say it <br>
+But my hands they found the axe <br>
+I'm so afraid <br>
+ <br>
+ALL <br>
+Somebody will do something <br>
+Somebody will take something <br>
+Somebody will strike something <br>
+Somebody will die <br>
+ <br>
+LIZZIE <br>
+I step onto the staircase <br>
+Stepmother hears me not <br>
+I step into the bedroom <br>
+Oh Lizzie, what have you got <br>
+I'm so afraid <br>
+ <br>
+EMMA <br>
+Gotta get out of here <br>
+Gotta get out of here <br>
+Gotta get out of here <br>
+Gotta get out of here <br>
+Gotta get out of here <br>
+Gotta get out of here <br>
+Gotta get out of here <br>
+Gotta get out of here <br>
+ <br>
+ALL <br>
+Somebody will do something <br>
+Somebody will take something <br>
+Somebody will strike something <br>
+Somebody will die <br>
+ <br>
+BRIDGET (spoken) <br>
+Oh, miss Lizzie! You startled me! <br>
+Mr. Borden's just come home, <br>
+he said to keep the noise down. <br>
+He'll be napping in the living room <br>
+and doesn't want to be disturbed <br>
+ <br>
+LIZZIE (spoken) <br>
+Maggie, you are going out this afternoon? <br>
+ <br>
+BRIDGET (spoken) <br>
+Oh, I don't know. I might and I might not. <br>
+I don't feel very well <br>
+ <br>
+LIZZIE (spoken) <br>
+If you go out make sure to lock the door <br>
+for Mrs. Borden has gone out on a sick call <br>
+and I might go out too <br>
+ <br>
+BRIDGET (spoken) <br>
+Miss Lizzie, who is sick? <br>
+ <br>
+LIZZIE (spoken) <br>
+I don't know. Somebody <br>
+ <br>
+BRIDGET (spoken) <br>
+Somebody? <br>
+ <br>
+LIZZIE (spoken) <br>
+Yes. She had a note from somebody this morning. <br>
+It must be in town. <br>
+There is a cheap sale of dresses at Sergeant's this afternoon. <br>
+Pennies on the yard <br>
+ <br>
+BRIDGET (spoken) <br>
+I'm going to have a lovely one <br>
+ <br>
+LIZZIE <br>
+With Maggie so retired <br>
+Stepmother quite undone <br>
+Father will be napping <br>
+He'll wish he had that son <br>
+I'm so afraid <br>
+ <br>
+ALL <br>
+Somebody will do something <br>
+Somebody will take something <br>
+Somebody will strike something <br>
+Somebody will <br>
+Somebody will die <br>
+ <br>
+LIZZIE (spoken) <br>
+Maggie! Go and get Miss Russell. <br>
+I don't want to be alone in this house <br>
+ <br>
+BRIDGET (spoken) <br>
+What's the matter? <br>
+ <br>
+LIZZIE (spoken) <br>
+Father is dead. <br>
+Somebody came in and killed him <br>
+ <br>
+## "Forty Whacks"(Entr’acte) - Band 
+ <br>
+ <br>
+## The Fall Of The House Of Borden/"The Alibi" - Bridget, Lizzie and Alice 
+ <br>
+BRIDGET <br>
+In the house of Borden <br>
+Somebody left us quite a mess <br>
+Splattered blood and brains on everything <br>
+Except on Lizzie's dress <br>
+ <br>
+It's a crime scene, it's a nightmare <br>
+It's a bloodbath, it's a fright <br>
+It's a butcher's shop in the house of Borden <br>
+ <br>
+A mob is gathering outside <br>
+Half the town is in the yard <br>
+The press is in a frenzy <br>
+Cops are standing guard <br>
+ <br>
+It must've been a lunatic <br>
+A foreigner, a beast <br>
+But it's just us girls in the house of Borden <br>
+ <br>
+LIZZIE (spoken) <br>
+I was in the backyard <br>
+ <br>
+ALICE (spoken) <br>
+Did you see anyone or hear anything? <br>
+ <br>
+LIZZIE (spoken) <br>
+I saw no one. Heard no screams <br>
+ <br>
+ALICE (spoken) <br>
+Where were you in the yard? <br>
+ <br>
+LIZZIE (spoken) <br>
+I was up in the barn loft <br>
+ <br>
+ALICE (spoken) <br>
+Why would you go up there after... what happened? <br>
+ <br>
+LIZZIE (spoken) <br>
+I went out to get a... lead sinker for my fishing trip. <br>
+I heard a distressing noise, like scraping, <br>
+And came back and found the screen door open <br>
+ <br>
+ALICE (spoken) <br>
+How long were you up there? <br>
+ <br>
+LIZZIE (spoken) <br>
+Twenty minutes? <br>
+ <br>
+ALICE (spoken) <br>
+It must've been sweltering! <br>
+ <br>
+LIZZIE (spoken) <br>
+I ate some pears <br>
+ <br>
+BRIDGET <br>
+Lizzie was in the backyard <br>
+Or did she say the barn? <br>
+It's only been a day now <br>
+And she's spinning quite a yarn <br>
+ <br>
+What we know for sure <br>
+Is there were four and now there's two <br>
+There's no coming back to the house of Borden <br>
+ <br>
+In the house of Borden <br>
+Somebody left us quite a mess <br>
+Splattered blood and brains on everything <br>
+Except on Lizzie's dress <br>
+ <br>
+It's a crime scene, it's a nightmare <br>
+It's a bloodbath, it's a fright <br>
+And it blew the roof off the house of Borden <br>
+ <br>
+We laid them out in the dining room <br>
+It's going on day two <br>
+I know it sounds disgusting <br>
+But it's 1892 <br>
+ <br>
+There's no AC <br>
+It's August <br>
+And it's ninety-five degrees <br>
+Well, you do the math <br>
+ <br>
+ <br>
+## What The Fuck Now, Lizzie? - Emma and Lizzie 
+ <br>
+Lizzie: Emma? Is that you? <br>
+Emma: My sweet little sister, what have you done? <br>
+Lizzie: Well I wasn't gonna wait for an engraved invitation. <br>
+Emma: Now I've got twice the trouble, got two for one. <br>
+Lizzie: Stop your bitchin', can't you see a win-win situation? <br>
+Emma: What the fuck?! <br>
+What the fuck, what the fuck, what the fuck now, Lizzie?! <br>
+Lizzie: Well he ain't crawling back into bed now is he? <br>
+Emma: No <br>
+Lizzie, my love, is this the best that you could do? <br>
+Damned, if I leave you alone for a minute! <br>
+What possessed you to murder the old man too? <br>
+Made a deal, had a plan, and an axe wasn't in it! <br>
+What the fuck! What the fuck, what the fuck, <br>
+What the fuck now, Lizzie?! <br>
+Lizzie: Well he ain't comin' round in the dark now is he? <br>
+Emma: What the fuck! What the fuck, what the fuck, <br>
+What the fuck now Lizzie?! <br>
+Lizzie: And she ain't gonna get all the dough now is she? <br>
+Emma: No. <br>
+Lizzie: No. <br>
+Both: No, no. <br>
+Lizzie: A foolish, not to say, a sorry sight. <br>
+Emma: Did he look? Did he blink? Did he know who did him? <br>
+Lizzie: My hands are red but I wear a heart so wide. <br>
+Both: Who would've thought the old man had so much blood in him? <br>
+Emma: What's done is done, but there's a knocking at the gate. <br>
+Gotta clean up the scene, gotta act like we're normal. <br>
+Get your shit together, get your story straight. <br>
+Gotta talk to a cop, gotta cry at a funeral. <br>
+What the fuck! What the fuck, what the fuck, <br>
+What the fuck now Lizzie?! <br>
+Lizzie: Well he ain't gonna lock all the doors now is her? <br>
+Emma: What the fuck! What the fuck, <br>
+What the fuck, what the fuck now, Lizzie? <br>
+Emma: Well she ain't gonna get all the dough now is she? No. <br>
+(Emma continues her "What the Fuck"s <br>
+and Lizzie continues her "No"s 3 times.) <br>
+Lizzie: Well, he ain't coming round in the dark now is he? <br>
+Both: No (4 times) <br>
+Lizzie: Sister, put on your nightgown- got to bed. <br>
+Emma: Gotta figure out a plan, gotta spring into action. <br>
+Lizzie: Ain't nobody home but the sleeping and the dead. <br>
+Gonna sleep tonight in sweet satisfaction. <br>
+ <br>
+## "The Dress" - Company 
+ <br>
+## Burn The Old Thing Up - Company 
+ <br>
+LIZZIE <br>
+Fire burns <br>
+Small dark figures <br>
+You and I <br>
+ <br>
+EMMA <br>
+Don't let them see <br>
+ <br>
+LIZZIE <br>
+Don't let them see <br>
+How the fire burns <br>
+ <br>
+EMMA & LIZZIE <br>
+Fire burns <br>
+ <br>
+EMMA <br>
+Smoke rises <br>
+Black as night <br>
+Blocks the light <br>
+ <br>
+EMMA & LIZZIE <br>
+From deep inside <br>
+ <br>
+Burn the old thing up <br>
+Burn the old thing up <br>
+Burn the old thing <br>
+Burn the old thing <br>
+Burn the old thing up <br>
+ <br>
+LIZZIE <br>
+Fire burns <br>
+Small dark figures <br>
+You and I <br>
+ <br>
+EMMA <br>
+Don't let them see <br>
+ <br>
+LIZZIE <br>
+Don't let them see <br>
+How the fire burns <br>
+ <br>
+EMMA & LIZZIE <br>
+Fire burns <br>
+ <br>
+EMMA <br>
+Smoke rises <br>
+Black as night <br>
+Blocks the light <br>
+ <br>
+EMMA & LIZZIE <br>
+From deep inside <br>
+ <br>
+Burn the old thing up <br>
+Burn the old thing up <br>
+Burn the old thing <br>
+Burn the old thing <br>
+Burn the old thing up <br>
+ <br>
+ALL <br>
+Oooh, ahhh, ahhh, ahhh <br>
+ <br>
+EMMA & LIZZIE <br>
+Burn the old thing up <br>
+Burn the old thing up <br>
+Burn the old thing <br>
+Burn the old thing <br>
+Burn the old thing up <br>
+ <br>
+ALICE & BRIDGET <br>
+Burn burn up <br>
+Burn burn up <br>
+Burn <br>
+Burn <br>
+Burn the old thing up <br>
+ <br>
+EMMA <br>
+Burnt down to the ground everything <br>
+ <br>
+LIZZIE <br>
+All that was <br>
+ <br>
+EMMA <br>
+All that was <br>
+Burn it down <br>
+ <br>
+ <br>
+## Questions Questions - Company 
+ <br>
+ALICE <br>
+Answering questions questions <br>
+More and more questions questions <br>
+Every day questions questions <br>
+Filling my mind with questions <br>
+ <br>
+ALL <br>
+Answering questions questions <br>
+More and more questions questions <br>
+Every day questions questions <br>
+Filling my mind with questions <br>
+ <br>
+ALICE <br>
+What do you know <br>
+Who told you that <br>
+What's that you say <br>
+Who would do this to them <br>
+What did you see <br>
+Were you alone <br>
+See anybody else <br>
+Were there strangers around <br>
+ <br>
+ALL <br>
+Answering questions questions <br>
+More and more questions questions <br>
+Every day questions questions <br>
+Filling my mind with questions <br>
+ <br>
+ALICE <br>
+What do you know <br>
+ <br>
+BRIDGET <br>
+Did you know that they've been murdered <br>
+ <br>
+ALICE <br>
+Who told you that <br>
+ <br>
+EMMA <br>
+Did you see it with you own eyes <br>
+ <br>
+ALICE <br>
+What's that you say <br>
+ <br>
+LIZZIE <br>
+Did he have enemies <br>
+ <br>
+ALICE <br>
+Who would do this to them <br>
+What did you see <br>
+ <br>
+BRIDGET <br>
+Where were you when it happened <br>
+ <br>
+ALICE <br>
+Were you alone <br>
+ <br>
+EMMA <br>
+Did your mother have a visitor <br>
+ <br>
+ALICE <br>
+See anybody else <br>
+ <br>
+LIZZIE <br>
+Near the house on the <br>
+ <br>
+ALICE <br>
+Were there strangers around <br>
+ <br>
+ALL <br>
+Answering questions questions <br>
+More and more questions questions <br>
+Every day questions questions <br>
+Filling my mind with questions <br>
+ <br>
+ALICE <br>
+How about at home <br>
+ <br>
+BRIDGET <br>
+Was everybody cordial <br>
+ <br>
+ALICE <br>
+Did they share all their meals <br>
+ <br>
+EMMA <br>
+Did you ever call her mother <br>
+ <br>
+ALICE <br>
+And what about your dad <br>
+ <br>
+LIZZIE <br>
+Cash or bonds property <br>
+ <br>
+ALICE <br>
+Had he written a will <br>
+ <br>
+BRIDGET <br>
+Have you ever used a hatchet <br>
+ <br>
+ALICE <br>
+Any weapons found <br>
+ <br>
+EMMA <br>
+Did your father kill some pigeons <br>
+ <br>
+ALICE <br>
+And what about an axe <br>
+ <br>
+LIZZIE <br>
+Did you buy poison there <br>
+ <br>
+ALICE <br>
+Then what did she do <br>
+Was everybody sick <br>
+ <br>
+ALL <br>
+Answering questions questions <br>
+More and more questions questions <br>
+Every day questions questions <br>
+Filling my mind with questions <br>
+Answering questions questions <br>
+More and more questions questions <br>
+Every day questions questions <br>
+Filling my mind with questions <br>
+ <br>
+ALICE <br>
+What did you hear <br>
+ <br>
+BRIDGET <br>
+What time did you hear it <br>
+ <br>
+ALICE <br>
+Did it sound like a groan <br>
+ <br>
+EMMA <br>
+Or maybe like a scraping <br>
+ <br>
+ALICE <br>
+Did she go to the barn <br>
+ <br>
+LIZZIE <br>
+Did you laugh on stairs <br>
+ <br>
+ALICE <br>
+Was there blood on her hands <br>
+What did she wear <br>
+ <br>
+BRIDGET <br>
+Was she wearing a blue dress <br>
+ <br>
+ALICE <br>
+Was it stained at the hem <br>
+ <br>
+EMMA <br>
+She change it to a new one <br>
+ <br>
+ALICE <br>
+See blood on the skirt <br>
+ <br>
+LIZZIE <br>
+Are you sure just a drop <br>
+ <br>
+ALICE <br>
+Did she burn the thing up <br>
+ <br>
+.................. <br>
+.................. <br>
+ <br>
+ <br>
+## Will You Lie? - Company 
+ <br>
+ALICE <br>
+Stop, stop, stop <br>
+The lies are all half-spoken <br>
+Half-lies spoken all the time <br>
+ <br>
+LIZZIE <br>
+But if you close your eyes you'll see <br>
+My golden pear, you hide a key <br>
+That can lock a secret in and never tell <br>
+ <br>
+The fruit of sin weighed on the bough <br>
+Somebody came in and cut them down <br>
+Now they've fallen to the ground with no farewell <br>
+ <br>
+Will you lie here for me <br>
+With your lips silently? <br>
+Will you bite through the skin <br>
+To the sweet truth within? <br>
+Will you rest for a while? <br>
+Let me bring back your smile <br>
+Will you lie here for me? <br>
+Will you stay? <br>
+ <br>
+ALICE <br>
+The pear is frightened of the rose <br>
+For now your thorns are all she knows <br>
+And she's seen the pain <br>
+That comes with your displeasure <br>
+And though the prick is most unkind <br>
+You think it leaves no trace behind <br>
+But it leaves a drop of blood <br>
+Upon the measure <br>
+ <br>
+LIZZIE <br>
+Will you lie here for me <br>
+With your lips silently? <br>
+Will you bite through the skin <br>
+To the sweet truth within? <br>
+Will you bite through the skin <br>
+To the sweet truth within? <br>
+Will you rest for a while? <br>
+Let me bring back your smile <br>
+Will you lie here for me? <br>
+Here for me <br>
+Are you? <br>
+Will you <br>
+Stay? <br>
+Stay <br>
+Will you? <br>
+ <br>
+(spoken) <br>
+What are you going to tell them? <br>
+ <br>
+ALICE (spoken) <br>
+The truth <br>
+ <br>
+LIZZIE (spoken) <br>
+The truth? I want to know the truth <br>
+ <br>
+ALICE (spoken) <br>
+I saw you. I saw miss Lizzie Borden burn that dress! <br>
+ <br>
+ <br>
+## Watchmen For The Morning - Bridget, Emma and Lizzie 
+ <br>
+EMMA & LIZZIE <br>
+Out of the depths I cry to thee <br>
+Lord, Lord hear my voice <br>
+Let thy ears be attentive <br>
+To the voice of my prayer <br>
+ <br>
+My soul waits for the Lord <br>
+And in his word I hope <br>
+My soul waits for the Lord <br>
+More than watchmen <br>
+For the morning <br>
+ <br>
+LIZZIE (spoken) <br>
+Emma, are you going to give me away? <br>
+ <br>
+EMMA (spoken) <br>
+No Lizzie, I won't <br>
+ <br>
+LIZZIE (spoken) <br>
+Yes you will. But I will let you see. <br>
+I won't give in one inch <br>
+ <br>
+EMMA & LIZZIE <br>
+If thou should mark iniquities <br>
+Lord, Lord who could stand <br>
+But there is forgiveness with thee <br>
+That thou may be feared <br>
+ <br>
+My soul it waits <br>
+It waits for the Lord <br>
+And in <br>
+And in his word I hope <br>
+My soul waits for the Lord <br>
+More than watchmen <br>
+For the morning <br>
+More than watchmen <br>
+For the morning <br>
+More than watchmen <br>
+For the morning <br>
+ <br>
+## Maybe Someday (Reprise 1) / Thirteen Days In Taunton - Company 
+ <br>
+LIZZIE (spoken) <br>
+My name is Lizzie Andrew Borden. Not Elizabeth. <br>
+Lizzie. Andrew, after my father, <br>
+I was so christened. I am innocent. <br>
+I leave it to my council to speak for me <br>
+ <br>
+(sung) <br>
+Maybe someday <br>
+I'll walk in the open <br>
+ <br>
+EMMA (spoken) <br>
+My full name is Emma L. Borden, <br>
+I am the sister of miss Lizzie Borden <br>
+ <br>
+LIZZIE <br>
+Maybe someday <br>
+We'll all forget <br>
+ <br>
+BRIDGET (spoken) <br>
+The name's Bridget Sullivan. <br>
+I was sometimes called Maggie by miss Emma and miss Lizzie <br>
+ <br>
+LIZZIE <br>
+Maybe someday <br>
+They won't whisper point and stare <br>
+ <br>
+ALICE (spoken) <br>
+I am Alice Russell <br>
+ <br>
+LIZZIE <br>
+But my secret's safe now <br>
+ <br>
+ALICE (spoken) <br>
+I exchanged calls with miss Lizzie Borden regularly. <br>
+She always received me upstairs <br>
+ <br>
+LIZZIE <br>
+My secret's <br>
+Safe <br>
+Now <br>
+ <br>
+ALICE (spoken) <br>
+Lizzie spoke of trouble with her stepmother. <br>
+That Mrs. Borden thought so-and-so. <br>
+But the whole thing was, as far as I could see, <br>
+that one's own mother might've had more influence over the father. <br>
+It was the father more than the mother. <br>
+They were young girls. <br>
+But young girls cannot go and do and have <br>
+ <br>
+LIZZIE <br>
+They tried to keep me down <br>
+But I said no <br>
+I'm moving uptown honey <br>
+It's where I'm gonna go <br>
+But I'm down here in the big house <br>
+Help me count the days <br>
+I've got thirteen days in Taunton <br>
+Then I'll fly away <br>
+ <br>
+EMMA (spoken) <br>
+I have no recollection of anything of that kind. <br>
+No sir, I don't seem to remember it. <br>
+I don't remember what you asked me. <br>
+I don't remember the question, nor the answer. <br>
+I can only say I don't remember giving it. <br>
+I don't know whether I did or not, I can't tell you. <br>
+I don't know. I was in Fairhaven <br>
+ <br>
+LIZZIE <br>
+I got my dream team workin' <br>
+On my defense <br>
+It cost me a bloody fortune <br>
+But I spared no expense <br>
+'Cause let me tell you <br>
+Losing is not a game I play <br>
+I'll be leaving by the front door <br>
+When I fly away <br>
+I got twelve more days in Taunton <br>
+And then I'll fly away <br>
+I got <br>
+Then I'll fly away <br>
+ <br>
+ALICE (spoken) <br>
+About seven o'clock on the evening of Wednesday, <br>
+August third I was waiting for miss Lizzie Borden. <br>
+But when she came she said- <br>
+ <br>
+BRIDGET (spoken) <br>
+She was on her way <br>
+to Benson's pharmacy for prussic acid. <br>
+To clean a stain <br>
+ <br>
+ALICE (spoken) <br>
+She said "Mr. and Mrs. Borden were awfully sick last night. <br>
+We were all sick, all but Maggie." <br>
+ <br>
+BRIDGET (spoken) <br>
+I had a sick headache and I was sick to my stomach <br>
+ <br>
+ALICE (spoken) <br>
+And she said Mrs. Borden even told the doctor <br>
+she thought she had been poisoned. <br>
+I asked her who would do something like that and she didn't know. <br>
+She said "I can't sleep at night. <br>
+I'm that afraid somebody will do something." <br>
+ <br>
+EMMA & LIZZIE <br>
+Now that you mention it I <br>
+Can't stand the night <br>
+I sit here in the darkness <br>
+Waiting for the light <br>
+ <br>
+LIZZIE <br>
+Eleven days in Taunton waiting <br>
+For the break of day <br>
+Ten more days in this hole <br>
+Then I'll fly away <br>
+ <br>
+They love me in the jailhouse <br>
+They love me in the street <br>
+They love me in the courtroom <br>
+Yeah I know I got 'em beat <br>
+I got nine more days in Taunton <br>
+ <br>
+ALICE <br>
+This <br>
+This <br>
+This is not love <br>
+I don't know what it is <br>
+ <br>
+LIZZIE <br>
+When this whole thing is over <br>
+I've got to get away <br>
+ <br>
+EMMA (spoken) <br>
+Well, I don't know how to describe it to you <br>
+ <br>
+BRIDGET (spoken) <br>
+It was not a Calico dress <br>
+ <br>
+ALICE (spoken) <br>
+It was a cheap cotton Bedford cord <br>
+ <br>
+EMMA (spoken) <br>
+An American cloth <br>
+ <br>
+ALICE (spoken) <br>
+All cotton <br>
+ <br>
+EMMA (spoken) <br>
+I think one part of it was black or very- <br>
+ <br>
+BRIDGET (spoken) <br>
+Light blue <br>
+ <br>
+ALICE (spoken) <br>
+With a small dark figure <br>
+ <br>
+BRIDGET (spoken) <br>
+A sprig <br>
+ <br>
+ALICE (spoken) <br>
+I did not suggest to miss Lizzie Borden that she change her dress <br>
+ <br>
+EMMA (spoken) <br>
+I think she did <br>
+ <br>
+ALICE (spoken) <br>
+I saw no blood on that dress. Not a drop <br>
+ <br>
+LIZZIE <br>
+Can we just drop the dress talk <br>
+The subject's getting dull <br>
+ <br>
+LIZZIE & BRIDGET <br>
+Gonna buy myself a brand new dress <br>
+Gonna buy a whole damn closet full <br>
+'Cause I got plenty of money <br>
+Girl, I just got paid <br>
+ <br>
+LIZZIE <br>
+Four more days in Taunton <br>
+Then I'll fly away <br>
+ <br>
+BRIDGET (spoken) <br>
+After Mrs. Borden told me to wash the windows, <br>
+I didn't see her anymore until I found her dead on the upstairs. <br>
+I don't remember to have heard a sound <br>
+Of anyone about the house until Mr. Borden came to the door. <br>
+As I unlocked it I said "Oh, <br>
+P'shaw" and miss Lizzie laughed at the top of the stairs <br>
+ <br>
+LIZZIE <br>
+You say that I'm not weeping <br>
+That I'm not dressed in black <br>
+Call me a Yankee Clytemnestra <br>
+Well imagine that <br>
+I've done my share of crying <br>
+Lord my dues is paid <br>
+I got three more days in Taunton <br>
+Then I'll fly away <br>
+ <br>
+ALICE (spoken) <br>
+Her sister turned and said "What are you going to do?" <br>
+ <br>
+EMMA (spoken) <br>
+I swear I didn't say it. <br>
+The reason I say I didn't say so is because I didn't say so <br>
+ <br>
+ALICE (spoken) <br>
+And Lizzie said "I'm going to burn this old thing up." <br>
+ <br>
+EMMA (spoken) <br>
+There was nothing of that kind said <br>
+ <br>
+ALICE (spoken) <br>
+It was covered in- <br>
+ <br>
+EMMA (spoken) <br>
+Paint! It was soiled, just as any dress would get soiled <br>
+And I said "Why don't you?" or something like that. <br>
+I can't tell the exact words <br>
+ <br>
+ALICE (spoken) <br>
+I am quite sure I left the room and told the officer <br>
+That I saw miss Lizzie Borden burn that dress <br>
+ <br>
+ALICE & LIZZIE <br>
+Turn of the century <br>
+Turn of the screw <br>
+Turn of the tables <br>
+Between me and you <br>
+ <br>
+LIZZIE <br>
+Got two more days in Taunton <br>
+Until my judgement day <br>
+One more day in Taunton <br>
+Then I'll fly away <br>
+ <br>
+They take me to the courthouse <br>
+The verdict's coming in <br>
+It only took an hour <br>
+For those white-haired gentlemen <br>
+To put this all behind me <br>
+Oh, today's the day <br>
+When the old man says <br>
+ <br>
+VOICEOVER <br>
+"Not guilty!" <br>
+ <br>
+LIZZIE <br>
+Watch me fly away <br>
+ <br>
+EMMA <br>
+Maybe someday <br>
+ <br>
+LIZZIE <br>
+I'll walk in the open <br>
+ <br>
+EMMA <br>
+Maybe someday <br>
+ <br>
+LIZZIE <br>
+We'll all forget <br>
+ <br>
+EMMA <br>
+Maybe someday <br>
+ <br>
+LIZZIE <br>
+They won't whisper point and stare but my secret's safe now <br>
+ <br>
+EMMA <br>
+Yes your secret's safe <br>
+ <br>
+EMMA & LIZZIE <br>
+Our secret's safe now <br>
+Maybe someday <br>
+We'll tell the world <br>
+Maybe someday <br>
+We'll make them understand <br>
+ <br>
+ALICE <br>
+Maybe someday <br>
+You'll come back to me <br>
+ <br>
+EMMA <br>
+But your secret's safe now <br>
+ <br>
+ALICE & BRIDGET <br>
+Her secret's safe now <br>
+ <br>
+EMMA <br>
+Our secret's safe <br>
+ <br>
+BRIDGET <br>
+Our secret's safe <br>
+ <br>
+ALICE <br>
+Our secret's safe <br>
+ <br>
+ALICE, BRIDGET, EMMA <br>
+Now <br>
+ <br>
+ <br>
+## "Maybe Someday (Reprise 2)" - Company 
+ <br>
+## Into Your Wildest Dreams (Epilogue) - Company 
+ <br>
+LIZZIE <br>
+I'll fly <br>
+Into your wildest dreams I'll <br>
+Fly <br>
+Upon my silver wings I'll <br>
+Fly <br>
+Fly <br>
+Fly <br>
+Fly <br>
+ <br>
+LIZZIE <br>
+Fly <br>
+You'll see my face in every <br>
+Night sky <br>
+You'll hear my voice in every <br>
+Long goodbye <br>
+Into your wildest dreams <br>
+ <br>
+ALICE, BRIDGET, EMMA <br>
+And the soul of the white bird <br>
+Will be carried to the mountain <br>
+And the soul <br>
+Fly <br>
+And the soul of the white bird <br>
+Will be carried to the mountain <br>
+And the soul <br>
+Into your wildest dreams <br>
+Fly <br>
+Into your wildest dreams I'll <br>
+Fly <br>
+Into your wildest dreams <br>
+Into your wildest dreams <br>
+Into your wildest dreams <br>
+ <br>
+LIZZIE <br>
+I'll <br>
+Fly <br>
+Fly <br>
+Fly <br>
+ <br>
+I'll <br>
+Fly <br>
+ <br>
+## Forty Whacks (Curtain) - Company 
+ <br>
+BRIDGET <br>
+Two, three, four! <br>
+ <br>
+ALL <br>
+Lizzie Borden took an axe <br>
+Gave her mother forty whacks <br>
+When she saw what she had done <br>
+Gave her father forty-one <br>
+ <br>
+Lizzie Borden took an axe <br>
+Gave her mother forty whacks <br>
+When she saw what she had done <br>
+Gave her father forty-one <br>
+ <br>
