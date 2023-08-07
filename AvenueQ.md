@@ -33,7 +33,7 @@ A new college graduate inquires about the vacancy in the building, ("What Do You
 
 ## The Avenue Q Theme  
 
-COMPANY<br>
+**COMPANY**<br>
 The sun is shining,<br>
 It's a lovely day,<br>
 A perfect morning<br>
@@ -87,93 +87,93 @@ The catering company laid me off.<br>
 
 ## It Sucks To Be Me  
 
-KATE MONSTER<br>
+**KATE MONSTER**<br>
 Morning, Brian!<br>
 <br>
-BRIAN<br>
+**BRIAN**<br>
 Hi, Kate Monster.<br>
 <br>
-KATE MONSTER<br>
+**KATE MONSTER**<br>
 How's life?<br>
 <br>
-BRIAN<br>
+**BRIAN**<br>
 Disappointing!<br>
 <br>
-KATE MONSTER<br>
+**KATE MONSTER**<br>
 What's the matter?<br>
 <br>
-BRIAN<br>
+**BRIAN**<br>
 The caterine company<br>
 laid me off.<br>
 <br>
-KATE MONSTER<br>
+**KATE MONSTER**<br>
 Oh, I'm sorry!<br>
 <br>
-BRIAN<br>
+**BRIAN**<br>
 Me too! I mean, look at me!<br>
 I'm ten years out of college, and I<br>
 always thought -<br>
 <br>
-KATE MONSTER<br>
+**KATE MONSTER**<br>
 What?<br>
 <br>
-BRIAN<br>
+**BRIAN**<br>
 No, it sounds stupid.<br>
 <br>
-KATE MONSTER<br>
+**KATE MONSTER**<br>
 Aww, come on!<br>
 <br>
-BRIAN<br>
+**BRIAN**<br>
 When I was little<br>
 I thought I would be...<br>
 <br>
-KATE MONSTER<br>
+**KATE MONSTER**<br>
 What?<br>
 <br>
-BRIAN<br>
+**BRIAN**<br>
 A big comedian<br>
 on late night TV<br>
 But now I'm thirty-two<br>
 And as you can see<br>
 I'm not<br>
 <br>
-KATE MONSTER<br>
+**KATE MONSTER**<br>
 Nope!<br>
 <br>
-BRIAN<br>
+**BRIAN**<br>
 Oh Well,<br>
 It sucks to be me.<br>
 <br>
-KATE MONSTER<br>
+**KATE MONSTER**<br>
 Nooo.<br>
 <br>
-BRIAN<br>
+**BRIAN**<br>
 It sucks to be me.<br>
 <br>
-KATE MONSTER<br>
+**KATE MONSTER**<br>
 No!<br>
 <br>
-BRIAN<br>
+**BRIAN**<br>
 It sucks to be broke<br>
 and unemployed<br>
 and turning thirty-three.<br>
 It sucks to be me.<br>
 <br>
-KATE MONSTER<br>
+**KATE MONSTER**<br>
 Oh, you think your life sucks?<br>
 <br>
-BRIAN<br>
+**BRIAN**<br>
 I think so.<br>
 <br>
-KATE MONSTER<br>
+**KATE MONSTER**<br>
 Your problems aren't so bad!<br>
 I'm kinda pretty<br>
 And pretty damn smart.<br>
 <br>
-BRIAN<br>
+**BRIAN**<br>
 You are.<br>
 <br>
-KATE MONSTER<br>
+**KATE MONSTER**<br>
 Thanks!<br>
 I like romantic things<br>
 Like music and art.<br>
@@ -184,114 +184,114 @@ A boyfriend?<br>
 Fuck!<br>
 It sucks to be me!<br>
 <br>
-BRIAN<br>
+**BRIAN**<br>
 Me too.<br>
 <br>
-KATE MONSTER<br>
+**KATE MONSTER**<br>
 It sucks to be me.<br>
 <br>
-BRIAN<br>
+**BRIAN**<br>
 It sucks to be me.<br>
 It sucks to be Brian...<br>
 <br>
-KATE MONSTER<br>
+**KATE MONSTER**<br>
 And Kate...<br>
 <br>
-BRIAN<br>
+**BRIAN**<br>
 To not have a job!<br>
 <br>
-KATE MONSTER<br>
+**KATE MONSTER**<br>
 To not have a date!<br>
 <br>
 BOTH<br>
 It sucks to be me.<br>
 <br>
-BRIAN<br>
+**BRIAN**<br>
 Hey, ROd, Nicky, can you<br>
 settle something for us?<br>
 Do you have a second?<br>
 <br>
-ROD<br>
+**ROD**<br>
 Ah, certainly.<br>
 <br>
-KATE MONSTER<br>
+**KATE MONSTER**<br>
 Whose life sucks more?<br>
 Brian's or mine?<br>
 <br>
-NICKY AND ROD<br>
+**NICKY** AND **ROD**<br>
 Ours!<br>
 <br>
-ROD<br>
+**ROD**<br>
 We live together.<br>
 <br>
-NICKY<br>
+**NICKY**<br>
 We're as close<br>
 As people can get.<br>
 <br>
-ROD<br>
+**ROD**<br>
 We've been the best<br>
 of buddies...<br>
 <br>
-NICKY<br>
+**NICKY**<br>
 Ever since the<br>
 Day we met.<br>
 <br>
-ROD<br>
+**ROD**<br>
 So he knows lots<br>
 Of ways to make me<br>
 Really upset.<br>
 Oh, every day is<br>
 An aggravation.<br>
 <br>
-NICKY<br>
+**NICKY**<br>
 Come on, that's<br>
 an exaggeration!<br>
 <br>
-ROD<br>
+**ROD**<br>
 You leave your<br>
 clothes out.<br>
 You put your feet<br>
 On my chair.<br>
 <br>
-NICKY<br>
+**NICKY**<br>
 Oh yeah?<br>
 You do such anal<br>
 Things like ironing<br>
 Your underwear.<br>
 <br>
-ROD<br>
+**ROD**<br>
 You make that very<br>
 Small apartment<br>
 We share a hell.<br>
 <br>
-NICKY<br>
+**NICKY**<br>
 So do you,<br>
 That's why I'm in hell too!<br>
 <br>
-ROD<br>
+**ROD**<br>
 It sucks to be me!<br>
 <br>
-NICKY<br>
+**NICKY**<br>
 No, it sucks to be me!<br>
 <br>
-KATE MONSTER<br>
+**KATE MONSTER**<br>
 It sucks to be me!<br>
 <br>
-BRIAN<br>
+**BRIAN**<br>
 It sucks to be me!<br>
 <br>
-ALL<br>
+**ALL**<br>
 Is there anybody here<br>
 It doesn't suck to be?<br>
 It sucks to be me!<br>
 <br>
-CHRISTMAS EVE<br>
+**CHRISTMAS**<br>
 Why you all so happy?<br>
 <br>
-NICKY<br>
+**NICKY**<br>
 Becuase our lives suck!<br>
 <br>
-CHRISTMAS EVE<br>
+**CHRISTMAS**<br>
 Your lives suck?<br>
 I hearing you correctly? Ha!<br>
 I coming to this country<br>
@@ -317,42 +317,42 @@ Sucka-Sucka-Sucka-Sucka-<br>
 Suck!<br>
 It suck to be me!<br>
 <br>
-PRINCETON<br>
+**PRINCETON**<br>
 Excuse me?<br>
 <br>
-BRIAN<br>
+**BRIAN**<br>
 Hey there.<br>
 <br>
-PRINCETON<br>
+**PRINCETON**<br>
 Sorry to bother you, but I'm<br>
 looking for a place to live.<br>
 <br>
-CHRISTMAS EVE<br>
+**CHRISTMAS**<br>
 Why you looking all<br>
 the way out here?<br>
 <br>
-PRINCETON<br>
+**PRINCETON**<br>
 Well, I started at Avenue A,<br>
 but so far everything is out<br>
 of my price range.  But this<br>
 neighborhood looks a lot cheaper!<br>
 Oh, and look - a "For Rent" sign!<br>
 <br>
-BRIAN<br>
+**BRIAN**<br>
 You need to talk to<br>
 the superintendent.<br>
 Let me get him.<br>
 <br>
-PRINCETON<br>
+**PRINCETON**<br>
 Great, thanks!<br>
 <br>
-BRIAN<br>
+**BRIAN**<br>
 Yo, Gary!<br>
 <br>
 GARY COLEMAN<br>
 I'm comin'! I'm comin'!<br>
 <br>
-PRINCETON<br>
+**PRINCETON**<br>
 Oh my God!<br>
 It's Gary Coleman!<br>
 <br>
@@ -371,16 +371,16 @@ But I'm here -<br>
 The Superintendent!<br>
 On Avenue Q -<br>
 <br>
-ALL<br>
+**ALL**<br>
 It sucks to be you.<br>
 <br>
-KATE MONSTER<br>
+**KATE MONSTER**<br>
 You win!<br>
 <br>
-ALL<br>
+**ALL**<br>
 It sucks to be you.<br>
 <br>
-BRIAN<br>
+**BRIAN**<br>
 I feel better now!<br>
 <br>
 GARY COLEMAN<br>
@@ -389,7 +389,7 @@ stopping you to ask you<br>
 "What you talkin' 'bout, Willis?"<br>
 It gets old.<br>
 <br>
-ALL<br>
+**ALL**<br>
 It sucks to be you<br>
 On Avenue Q<br>
 (Sucks to be me)<br>
@@ -407,84 +407,84 @@ Our friends do too!<br>
 Come true,<br>
 We live on Avenue Q!<br>
 <br>
-PRINCETON<br>
+**PRINCETON**<br>
 This is real life!<br>
 <br>
-ALL<br>
+**ALL**<br>
 We live on Avenue Q!<br>
 <br>
-NICKY<br>
+**NICKY**<br>
 You're gonna love it!<br>
 <br>
-ALL<br>
+**ALL**<br>
 We live on Avenue Q!<br>
 <br>
 GARY COLEMAN<br>
 Here's your keys!<br>
 <br>
-ALL<br>
+**ALL**<br>
 Welcome to Avenue Q!<br>
 <br>
 
 ## If You Were Gay  
 
-ROD<br>
+**ROD**<br>
 Aah, an afternoon alone with<br>
 My favorite book, "Broadway<br>
 Musicals of the 1940s."<br>
 No roommate to bother me.<br>
 How could it get any better than this?<br>
 <br>
-NICKY<br>
+**NICKY**<br>
 Oh,hi Rod!<br>
 <br>
-ROD<br>
+**ROD**<br>
 Hi Nicky.<br>
 <br>
-NICKY<br>
+**NICKY**<br>
 Hey Rod, you'll never<br>
 Guess what happened to<br>
 Me on the subway this morning.<br>
 This guy was smiling at me and talking to me<br>
 <br>
-ROD<br>
+**ROD**<br>
 That's very interesting.<br>
 <br>
-NICKY<br>
+**NICKY**<br>
 He was being real friendly,<br>
 And I think he was coming on to me.<br>
 I think he might've thought I was gay!<br>
 <br>
-ROD<br>
+**ROD**<br>
 Ahem, so, uh, why are you telling me this?<br>
 Why should I care?<br>
 I don't care.<br>
 What did you have for lunch today?<br>
 <br>
-NICKY<br>
+**NICKY**<br>
 Oh, you don't have to get<br>
 All defensive about it, Rod...<br>
 <br>
-ROD<br>
+**ROD**<br>
 I'm NOT getting defensive!<br>
 What do I care about some gay guy you met, okay?<br>
 I'm trying to read.<br>
 <br>
-NICKY<br>
+**NICKY**<br>
 Oh, I didn't mean anything by it, Rod.<br>
 I just think it's something we should be able to talk about.<br>
 <br>
-ROD<br>
+**ROD**<br>
 I don't want to talk about it,<br>
 Nicky! This conversation is over!!!<br>
 <br>
-NICKY<br>
+**NICKY**<br>
 Yeah, but...<br>
 <br>
-ROD<br>
+**ROD**<br>
 OVER!!!<br>
 <br>
-NICKY<br>
+**NICKY**<br>
 Well, okay, but just so you know —<br>
 IF YOU WERE GAY<br>
 THAT'D BE OKAY.<br>
@@ -496,49 +496,49 @@ I WOULD FEEL FREE<br>
 TO SAY THAT I WAS GAY<br>
 (BUT I'M NOT GAY.)<br>
 <br>
-ROD<br>
+**ROD**<br>
 Nicky, please!<br>
 I am trying to read....<br>
 What?!<br>
 <br>
-NICKY<br>
+**NICKY**<br>
 IF YOU WERE QUEER<br>
 <br>
-ROD<br>
+**ROD**<br>
 Ah, Nicky!<br>
 <br>
-NICKY<br>
+**NICKY**<br>
 I'D STILL BE HERE,<br>
 <br>
-ROD<br>
+**ROD**<br>
 Nicky, I'm trying to read this book.<br>
 <br>
-NICKY<br>
+**NICKY**<br>
 YEAR AFTER YEAR<br>
 <br>
-ROD<br>
+**ROD**<br>
 Nicky!<br>
 <br>
-NICKY<br>
+**NICKY**<br>
 BECAUSE YOU'RE DEAR<br>
 TO ME,<br>
 <br>
-ROD<br>
+**ROD**<br>
 Argh!<br>
 <br>
-NICKY<br>
+**NICKY**<br>
 AND I KNOW THAT YOU<br>
 <br>
-ROD<br>
+**ROD**<br>
 What?<br>
 <br>
-NICKY<br>
+**NICKY**<br>
 WOULD ACCEPT ME TOO,<br>
 <br>
-ROD<br>
+**ROD**<br>
 I would?<br>
 <br>
-NICKY<br>
+**NICKY**<br>
 IF I TOLD YOU TODAY,<br>
 "HEY! GUESS WHAT,<br>
 I'M GAY!"<br>
@@ -546,40 +546,40 @@ I'M GAY!"<br>
 I'M HAPPY<br>
 JUST BEING WITH YOU.<br>
 <br>
-ROD<br>
+**ROD**<br>
 High Button Shoes, Pal Joey...<br>
 <br>
-NICKY<br>
+**NICKY**<br>
 SO WHAT SHOULD IT<br>
 MATTER TO ME<br>
 WHAT YOU DO IN BED<br>
 WITH GUYS?<br>
 <br>
-ROD<br>
+**ROD**<br>
 Nicky, that's GROSS!<br>
 <br>
-NICKY<br>
+**NICKY**<br>
 No it's not!<br>
 IF YOU WERE GAY<br>
 I'D SHOUT HOORAY!<br>
 <br>
-ROD<br>
+**ROD**<br>
 I am not listening!<br>
 <br>
-NICKY<br>
+**NICKY**<br>
 AND HERE I'D STAY,<br>
 <br>
-ROD<br>
+**ROD**<br>
 La la la la la!<br>
 <br>
-NICKY<br>
+**NICKY**<br>
 BUT I WOULDN'T GET<br>
 IN YOUR WAY.<br>
 <br>
-ROD<br>
+**ROD**<br>
 Aaaah!<br>
 <br>
-NICKY<br>
+**NICKY**<br>
 YOU CAN COUNT ON ME<br>
 TO ALWAYS BE<br>
 BESIDE YOU EVERY DAY,<br>
@@ -590,13 +590,13 @@ AND, AS THEY SAY,<br>
 IT'S IN YOUR DNA,<br>
 YOU'RE GAY!<br>
 <br>
-ROD<br>
+**ROD**<br>
 BUT I'M NOT GAY!<br>
 <br>
-NICKY<br>
+**NICKY**<br>
 If you were gay.<br>
 <br>
-ROD<br>
+**ROD**<br>
 Argh!<br>
 
 ## Purpose  
@@ -931,7 +931,7 @@ Brian:<br>
 Cool.<br>
 <br>
 Christmas Eve:<br>
-BRIAN! Come back here!<br>
+**BRIAN**! Come back here!<br>
 You take out lecycuraburs!<br>
 <br>
 Princeton:<br>
@@ -1017,122 +1017,122 @@ Evlyone's a ritter bit lacist!<br>
 <br>
 KATE<br>
 The internet is really really great<br>
-TREKKIE MONSTER<br>
+**TREKKIE MONSTER**<br>
 For porn<br>
 KATE<br>
 I’ve got a fast connection so i don’t have to wait<br>
-TREKKIE<br>
+**TREKKIE**<br>
 For porn<br>
 KATE<br>
 Huh?<br>
 There's always some new site,<br>
-TREKKIE<br>
+**TREKKIE**<br>
 For porn!<br>
 I browse all day and night<br>
-TREKKIE<br>
+**TREKKIE**<br>
 For porn!<br>
 KATE<br>
 It's like i’m surfing at the speed of light<br>
-TREKKIE<br>
+**TREKKIE**<br>
 For porn!<br>
 KATE<br>
 Trekkie!<br>
 <br>
-TREKKIE<br>
+**TREKKIE**<br>
 The internet is for porn<br>
 KATE<br>
 Trekkie!<br>
-TREKKIE<br>
+**TREKKIE**<br>
 The internet is for porn,<br>
 KATE<br>
 What are you doing!?<br>
-TREKKIE<br>
+**TREKKIE**<br>
 Why you think the net was born?<br>
 Porn porn porn<br>
 <br>
 KATE<br>
 Treee—kkie!<br>
-TREKKIE<br>
+**TREKKIE**<br>
 Oh hello kate monster<br>
 KATE<br>
 You are ruining my song<br>
-TREKKIE<br>
+**TREKKIE**<br>
 Oh me sorry, me no mean to<br>
 KATE<br>
 Well if you wouldnt mind please being quiet for a minute so i can finish?<br>
-TREKKIE<br>
+**TREKKIE**<br>
 Me no talkie<br>
 KATE<br>
 Good<br>
 <br>
 I’m glad we have this new technology<br>
-TREKKIE<br>
+**TREKKIE**<br>
 For porn<br>
 KATE<br>
 Which gives us untold opportunity<br>
-TREKKIE<br>
+**TREKKIE**<br>
 For por—oops, sorry<br>
 KATE<br>
 Right from you own desktop<br>
-TREKKIE<br>
+**TREKKIE**<br>
 For ---<br>
 KATE<br>
 You can research browse and shop<br>
 Until you’ve had enough and your ready to stop<br>
-TREKKIE<br>
+**TREKKIE**<br>
 FOR PORN!!<br>
 <br>
 <br>
 Trekkie!<br>
-TREKKIE<br>
+**TREKKIE**<br>
 The internet is for porn!<br>
 KATE<br>
 Noooo<br>
-TREKKIE<br>
+**TREKKIE**<br>
 The internet if for porn!<br>
 KATE<br>
 Trekkie<br>
-TREKKIE<br>
+**TREKKIE**<br>
 Me up all night honking me horn to porn, porn, porn!<br>
 <br>
 KATE<br>
 That’s gross you’re a pervert<br>
-TREKKIE<br>
+**TREKKIE**<br>
 Ah, sticks and stones Kate monster<br>
 KATE<br>
 NO really, your a pervert<br>
 Normal people don’t sit at home and look<br>
 At porn on the internet<br>
-TREKKIE<br>
+**TREKKIE**<br>
 Ohhhh?<br>
 KATE<br>
 What?!<br>
-TREKKIE<br>
+**TREKKIE**<br>
 You have no idea<br>
 Ready normal people?<br>
 <br>
 NORMAL PEOPLE<br>
 Ready--- ready ----ready<br>
 <br>
-TREKKIE<br>
+**TREKKIE**<br>
 Let me hear it!<br>
 <br>
 TREKKIE AND GUYS<br>
 The internet is for porn!<br>
-PRINCETON<br>
+**PRINCETON**<br>
 Sorry kate<br>
-TREKKIE AND GUYS<br>
+**TREKKIE** AND GUYS<br>
 The internet is for porn!<br>
-PRINCETON<br>
+**PRINCETON**<br>
 I masturbate!<br>
-TREKKIE AND GUYS<br>
+**TREKKIE** AND GUYS<br>
 All these guys unzip their flies<br>
 For porn, porn, porn!<br>
 <br>
 KATE<br>
 The internet is not for porn!!<br>
 <br>
-TREKKIE AND GUYS<br>
+**TREKKIE** AND GUYS<br>
 PORN!, PORN, P---<br>
 <br>
 KATE<br>
@@ -1146,7 +1146,7 @@ That’s correct.<br>
 KATE<br>
 And Brian, you buy things on Amazon.com<br>
 <br>
-BRIAN<br>
+**BRIAN**<br>
 Sure!<br>
 <br>
 KATE<br>
@@ -1158,53 +1158,53 @@ Yes I do!<br>
 KATE<br>
 And Princeton, you sent me that sweet online birthday card<br>
 <br>
-PRINCETON<br>
+**PRINCETON**<br>
 True!<br>
 <br>
-TREKKIE<br>
+**TREKKIE**<br>
 Oh, but Kate-<br>
 What you think he do . . .after? hmm?<br>
 <br>
-PRINCETON<br>
+**PRINCETON**<br>
 . .yeah<br>
 <br>
 KATE<br>
 EEEWWWWW!<br>
-TREKKIE AND GUYS<br>
+**TREKKIE** AND GUYS<br>
 The internet is for porn!<br>
 KATE<br>
 Gross!<br>
-TREKKIE AND GUYS<br>
+**TREKKIE** AND GUYS<br>
 The internet is for porn!<br>
 KATE<br>
 I hate porn<br>
-TREKKIE AND GUYS<br>
+**TREKKIE** AND GUYS<br>
 Grab your dick and double click<br>
 KATE<br>
 I hate you men!<br>
-TREKKIE AND GUYS<br>
+**TREKKIE** AND GUYS<br>
 For porn, porn, porn!<br>
 (harmonizing) porn, porn, porn, porn<br>
 KATE<br>
 I’m leaving!<br>
-TREKKIE AND GUYS<br>
+**TREKKIE** AND GUYS<br>
 Porn, porn, porn, porn<br>
 porn, porn, porn, porn<br>
 KATE<br>
 I hate the internet!<br>
-TREKKIE AND GUYS<br>
+**TREKKIE** AND GUYS<br>
 Porn, porn, porn, porn<br>
 <br>
-TREKKIE<br>
+**TREKKIE**<br>
 The internet is for<br>
 <br>
-TREKKIE AND SOME<br>
+**TREKKIE** AND SOME<br>
 The internet is for<br>
 <br>
-TREKKIE AND ALL<br>
+**TREKKIE** AND **ALL**<br>
 The internet is for PORN!<br>
 <br>
-TREKKIE<br>
+**TREKKIE**<br>
 YEAH!<br>
 <br>
 
@@ -1410,7 +1410,7 @@ Thank you..hunnie?<br>
 
 ## Special  
 
-LUCY:<br>
+**LUCY**:<br>
 I can make you feel special<br>
 When it sucks to be you.<br>
 I can make you feel special<br>
@@ -1421,10 +1421,10 @@ No one cares who you are or what you say.<br>
 And sometimes you feel like you're nobody,<br>
 But you can feel like somebody with me.<br>
 <br>
-PRINCETON:<br>
+**PRINCETON**:<br>
 Wow!<br>
 <br>
-LUCY:<br>
+**LUCY**:<br>
 Yeah, they're real.<br>
 <br>
 When we're together the earth will shake<br>
@@ -1603,27 +1603,27 @@ Want!<br>
 
 ## Come True  
 
-ROD<br>
+**ROD**<br>
 It sure can get lonely at night.  Nicky, you awake?<br>
-NICKY<br>
+**NICKY**<br>
 Ah, is that a unicorn?<br>
-ROD<br>
+**ROD**<br>
 Ugh, he's talking in his sleep again.<br>
-NICKY<br>
+**NICKY**<br>
 No, I'll wear the purple shoes.  Hh, who painted the kitten?<br>
-ROD<br>
+**ROD**<br>
 Ugh, maybe I should just shake him.<br>
-NICKY<br>
+**NICKY**<br>
 I love you, Rod<br>
-ROD<br>
+**ROD**<br>
 What did you say?<br>
-NICKY<br>
+**NICKY**<br>
 I love your little laugh<br>
-ROD<br>
+**ROD**<br>
 Nicky?  Are you awake?<br>
-NICKY<br>
+**NICKY**<br>
 Take off your shirt<br>
-ROD<br>
+**ROD**<br>
 Oh Nicholas!  Have you been shy all this time?<br>
 Have we been... hiding from each other?  I wonder...<br>
 <br>
@@ -1632,19 +1632,19 @@ I'd lay in bed<br>
 Thoughts of you<br>
 Running through my head<br>
 <br>
-NICKY<br>
+**NICKY**<br>
 I know, put my earmuffs on the cookie<br>
 <br>
-ROD<br>
+**ROD**<br>
 But I never thought<br>
 The things in my head<br>
 Could really happen<br>
 In my bed<br>
 <br>
-NICKY<br>
+**NICKY**<br>
 You look like David Hasselhoff<br>
 <br>
-ROD<br>
+**ROD**<br>
 All those years<br>
 I missed the signs<br>
 Couldn't read<br>
@@ -1664,15 +1664,15 @@ You and me and you, fantasies come true<br>
 <br>
 MUSICAL INTERLUDE<br>
 <br>
-ROD<br>
+**ROD**<br>
 You and me lived in fantasy<br>
 But we'll be a reality<br>
 <br>
-PRINCETON<br>
+**PRINCETON**<br>
 Kate, that was amazing!<br>
 KATE<br>
 You're amazing<br>
-PRINCETON<br>
+**PRINCETON**<br>
 Heh, I want you to have this.<br>
 It's a penny I carry around with me for good luck.<br>
 It's from the year I was born, see?<br>
@@ -1692,27 +1692,27 @@ That I like you more<br>
 Than I've ever liked<br>
 Any guy before<br>
 <br>
-ROD                       KATE<br>
+**ROD**                       KATE<br>
 Cuz now                  Cuz now<br>
 My love                  My love<br>
 <br>
 BOTH<br>
 I'm getting what I've always been dreaming of<br>
 <br>
-ROD                       KATE<br>
+**ROD**                       KATE<br>
 So are you               Oh Baby<br>
 <br>
 BOTH<br>
 Fantasies come true<br>
 <br>
-KATE                      ROD<br>
+KATE                      **ROD**<br>
 And now                  And now<br>
 I swear                  I swear that<br>
 <br>
 BOTH<br>
 When you want me I'm gonna be right there<br>
 <br>
-ROD                       KATE<br>
+**ROD**                       KATE<br>
 To care                  To care<br>
 <br>
 BOTH<br>
@@ -1721,35 +1721,35 @@ For you<br>
 KATE<br>
 That's what I'm gonna do<br>
 <br>
-ROD                        KATE<br>
+**ROD**                        KATE<br>
 And make your fantasies   Fantasies<br>
 <br>
 BOTH<br>
 Come true<br>
 <br>
-ROD<br>
+**ROD**<br>
 Fantasies come true<br>
 <br>
-NICKY<br>
+**NICKY**<br>
 Uh, hey Rod, buddy, you're talking in your sleep.<br>
-ROD<br>
+**ROD**<br>
 Oh, I thought you were talking in your sleep...<br>
-NICKY<br>
+**NICKY**<br>
 No I just came to bed.  Heh, you're dreamin' is all.<br>
-ROD<br>
+**ROD**<br>
 Oh.<br>
-NICKY<br>
+**NICKY**<br>
 Sounded like a nice dream, though.<br>
-ROD<br>
+**ROD**<br>
 Yes it was a nice dream.<br>
-NICKY<br>
+**NICKY**<br>
 Goodnight!<br>
-ROD<br>
+**ROD**<br>
 Goodnight, Nicky.<br>
 
 ## My Girlfriend, Who Lives in Canada  
 
-ROD<br>
+**ROD**<br>
 Ohhhh...<br>
 I wish you could meet my girlfriend,<br>
 My girlfriend who lives in Canada.<br>
@@ -2100,7 +2100,7 @@ He is your love.<br>
 GARY COLEMAN:<br>
 Right now you are down and out and feeling really crappy<br>
 <br>
-NICKY:<br>
+**NICKY**:<br>
 I'll say.<br>
 <br>
 GARY COLEMAN:<br>
@@ -2108,7 +2108,7 @@ And when I see how sad you are<br>
 It sort of makes me...<br>
 Happy!<br>
 <br>
-NICKY:<br>
+**NICKY**:<br>
 Happy?!<br>
 <br>
 GARY COLEMAN:<br>
@@ -2118,7 +2118,7 @@ It's...<br>
 Schadenfreude!<br>
 Making me feel glad that I'm not you.<br>
 <br>
-NICKY:<br>
+**NICKY**:<br>
 Well that's not very nice, Gary!<br>
 <br>
 GARY COLEMAN:<br>
@@ -2126,39 +2126,39 @@ I didn't say it was nice! But everybody does it!<br>
 <br>
 D'ja ever clap when a waitress falls and drops a tray of glasses?<br>
 <br>
-NICKY:<br>
+**NICKY**:<br>
 Yeah...<br>
 <br>
 GARY COLEMAN:<br>
 And ain't it fun to watch figure skaters falling on their asses?<br>
 <br>
-NICKY:<br>
+**NICKY**:<br>
 Sure!<br>
 <br>
 GARY COLEMAN:<br>
 And don'tcha feel all warm and cozy,<br>
 Watching people out in the rain!<br>
 <br>
-NICKY:<br>
+**NICKY**:<br>
 You bet!<br>
 <br>
 GARY COLEMAN:<br>
 That's...<br>
 <br>
-GARY AND NICKY:<br>
+GARY AND **NICKY**:<br>
 Schadenfreude!<br>
 <br>
 GARY COLEMAN:<br>
 People taking pleasure in your pain!<br>
 <br>
-NICKY:<br>
+**NICKY**:<br>
 Oh, Schadenfreude, huh?<br>
 What's that, some kinda Nazi word?<br>
 <br>
 GARY COLEMAN:<br>
 Yup! It's German for "happiness at the misfortune of others!"<br>
 <br>
-NICKY:<br>
+**NICKY**:<br>
 "Happiness at the misfortune of others." That is German!<br>
 <br>
 Watching a vegetarian being told she just ate chicken<br>
@@ -2166,39 +2166,39 @@ Watching a vegetarian being told she just ate chicken<br>
 GARY COLEMAN:<br>
 Or watching a frat boy realize just what he put his dick in!<br>
 <br>
-NICKY:<br>
+**NICKY**:<br>
 Being on the elevator when somebody shouts "Hold the door!"<br>
 <br>
-GARY AND NICKY:<br>
+GARY AND **NICKY**:<br>
 "No!!!"<br>
 Schadenfreude!<br>
 <br>
 GARY COLEMAN:<br>
 "Fuck you lady, that's what stairs are for!"<br>
 <br>
-NICKY:<br>
+**NICKY**:<br>
 Ooh, how about...<br>
 Straight-A students getting Bs?<br>
 <br>
 GARY COLEMAN:<br>
 Exes getting STDs!<br>
 <br>
-NICKY:<br>
+**NICKY**:<br>
 Waking doormen from their naps!<br>
 <br>
 GARY COLEMAN:<br>
 Watching tourists reading maps!<br>
 <br>
-NICKY:<br>
+**NICKY**:<br>
 Football players getting tackled!<br>
 <br>
 GARY COLEMAN:<br>
 CEOs getting shackled!<br>
 <br>
-NICKY:<br>
+**NICKY**:<br>
 Watching actors never reach<br>
 <br>
-GARY AND NICKY:<br>
+GARY AND **NICKY**:<br>
 The ending of their oscar speech!<br>
 Schadenfreude!<br>
 Schadenfreude!<br>
@@ -2210,11 +2210,11 @@ The world needs people like you and me who've been knocked around by fate.<br>
 'Cause when people see us, they don't want to be us,<br>
 and that makes them feel great.<br>
 <br>
-NICKY:<br>
+**NICKY**:<br>
 Sure!<br>
 We provide a vital service to society!<br>
 <br>
-GARY AND NICKY:<br>
+GARY AND **NICKY**:<br>
 You and me!<br>
 Schadenfreude!<br>
 Making the world a better place...<br>
@@ -2227,40 +2227,40 @@ S-C-H-A-D-E-N-F-R-E-U-D-E!<br>
 
 ## I Wish I Could Go Back to College  
 
-KATE MONSTER:<br>
+**KATE MONSTER**:<br>
 I wish I could go back to college.<br>
 Life was so simple back then.<br>
 <br>
-NICKY:<br>
+**NICKY**:<br>
 What would I give to go back<br>
 And live in a dorm with a meal plan again!<br>
 <br>
-PRINCETON:<br>
+**PRINCETON**:<br>
 I wish I could go back to college.<br>
 In college you know who you are.<br>
 You sit in the quad, and think, "Oh my God!<br>
 I am totally gonna go far!"<br>
 <br>
-ALL:<br>
+**ALL**:<br>
 How do I go back to college?<br>
 I don't know who I am anymore!<br>
 <br>
-PRINCETON:<br>
+**PRINCETON**:<br>
 I wanna go back to my room<br>
 And find a message in dry-erase pen on the door!<br>
 Ohhh...<br>
 I wish I could just drop a class...<br>
 <br>
-NICKY:<br>
+**NICKY**:<br>
 Or get into a play...<br>
 <br>
-KATE MONSTER:<br>
+**KATE MONSTER**:<br>
 Or change my major...<br>
 <br>
-PRINCETON:<br>
+**PRINCETON**:<br>
 Or fuck my T.A.<br>
 <br>
-ALL:<br>
+**ALL**:<br>
 I need an academic advisor to point the way!<br>
 We could be...<br>
 Sitting in the computer lab,<br>
@@ -2268,23 +2268,23 @@ Sitting in the computer lab,<br>
 Cursing the world 'cause I didn't start sooner,<br>
 And seeing the rest of the class there, too!<br>
 <br>
-PRINCETON:<br>
+**PRINCETON**:<br>
 I wish I could go back to college!<br>
 <br>
-ALL:<br>
+**ALL**:<br>
 How do I go back to college?!<br>
 AHHHH...<br>
 <br>
-PRINCETON:<br>
+**PRINCETON**:<br>
 I wish I had taken more pictures.<br>
 <br>
-NICKY:<br>
+**NICKY**:<br>
 But if I were to go back to college,<br>
 Think what a loser I'd be-<br>
 I'd walk through the quad,<br>
 And think "Oh my God..."<br>
 <br>
-ALL:<br>
+**ALL**:<br>
 "These kids are so much younger than me."<br>
 
 ## The Money Song  
@@ -2664,88 +2664,88 @@ Helping yourself!<br>
 
 ## For Now  
 
-PRINCETON:<br>
+**PRINCETON**:<br>
 Why does everything have to be so hard?<br>
 <br>
 GARY COLEMAN:<br>
 Maybe you'll never find your purpose.<br>
 <br>
-CHRISTMAS EVE:<br>
+**CHRISTMAS**:<br>
 Lots of people don't.<br>
 <br>
-PRINCETON:<br>
+**PRINCETON**:<br>
 But then- I don't know why I'm even alive!<br>
 <br>
-KATE MONSTER:<br>
+**KATE MONSTER**:<br>
 Well, who does, really?<br>
 Everyone's a little bit unsatisfied.<br>
 <br>
-BRIAN:<br>
+**BRIAN**:<br>
 Everyone goes 'round a little empty inside.<br>
 <br>
 GARY COLEMAN:<br>
 Take a breath,<br>
 Look around,<br>
 <br>
-BRIAN:<br>
+**BRIAN**:<br>
 Swallow your pride,<br>
 <br>
-KATE MONSTER:<br>
+**KATE MONSTER**:<br>
 FOr now...<br>
 <br>
-BRIAN, KATE, GARY, CHRISTMAS EVE:<br>
+**BRIAN**, KATE, GARY, **CHRISTMAS**:<br>
 For now...<br>
 <br>
-NICKY:<br>
+**NICKY**:<br>
 Nothing lasts,<br>
 <br>
-ROD:<br>
+**ROD**:<br>
 Life goes on,<br>
 <br>
-NICKY:<br>
+**NICKY**:<br>
 Full of surprises.<br>
 <br>
-ROD:<br>
+**ROD**:<br>
 You'll be faced with problems of all shapes and sizes.<br>
 <br>
-CHRISTMAS EVE:<br>
+**CHRISTMAS**:<br>
 You're going to have to make a few compromises...<br>
 For now...<br>
 <br>
-TREKKIE MONSTER:<br>
+**TREKKIE MONSTER**:<br>
 For now...<br>
 <br>
-ALL:<br>
+**ALL**:<br>
 But only for now! (For now)<br>
 Only for now! (For now)<br>
 Only for now! (For now)<br>
 Only for now!<br>
 <br>
-LUCY:<br>
+**LUCY**:<br>
 For now we're healthy.<br>
 <br>
-BRIAN:<br>
+**BRIAN**:<br>
 For now we're employed.<br>
 <br>
-BAD IDEA BEARS:<br>
+**BAD IDEA BEARS**:<br>
 For now we're happy...<br>
 <br>
-KATE MONSTER:<br>
+**KATE MONSTER**:<br>
 If not overjoyed.<br>
 <br>
-PRINCETON:<br>
+**PRINCETON**:<br>
 And we'll accept the things we cannot avoid, for now...<br>
 <br>
 GARY COLEMAN:<br>
 For now...<br>
 <br>
-TREKKIE MONSTER:<br>
+**TREKKIE MONSTER**:<br>
 For now...<br>
 <br>
-KATE MONSTER:<br>
+**KATE MONSTER**:<br>
 For now...<br>
 <br>
-ALL:<br>
+**ALL**:<br>
 But only for now! (For now)<br>
 Only for now! (For now)<br>
 Only for now! (For now)<br>
@@ -2776,22 +2776,22 @@ Let life roll off your backs<br>
 Except for death and paying taxes,<br>
 Everything in life is only for now!<br>
 <br>
-NICKY:<br>
+**NICKY**:<br>
 Each time you smile...<br>
 <br>
-ALL:<br>
+**ALL**:<br>
 ...Only for now<br>
 <br>
-KATE MONSTER:<br>
+**KATE MONSTER**:<br>
 It'll only last a while.<br>
 <br>
-ALL:<br>
+**ALL**:<br>
 ...Only for now<br>
 <br>
-PRINCETON:<br>
+**PRINCETON**:<br>
 Life may be scary...<br>
 <br>
-ALL:<br>
+**ALL**:<br>
 ...Only for now<br>
 But it's only temporary<br>
 <br>
@@ -2803,6 +2803,6 @@ ba-da da-da da da-da<br>
 Ba-dum ba-da, ba-dum ba-da<br>
 ohhhh-<br>
 <br>
-PRINCETON:<br>
+**PRINCETON**:<br>
 Everything in life is only for now.<br>
 <br>
