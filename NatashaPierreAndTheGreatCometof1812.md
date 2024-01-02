@@ -1,9 +1,10 @@
 # Natasha Pierre & The Great Comet of 1812
-<br>
+
+
 ## SYNOPSIS
-<br>
+
 ### Act 1
-<br>
+
 The story is set in Moscow, 1812, just before Napoleon's invasion of Russia and the burning of the city. As the story begins ("Prologue"), Pierre, a wealthy aristocrat, is having an existential crisis, living a slothful life of wine, philosophy, and inaction ("Pierre"). He is best friends with Prince Andrey Bolkonsky, who has left to go to war. Andrey has recently become engaged to the young, beautiful countess Natasha Rostova. Natasha and her cousin Sonya arrive in Moscow to stay the winter with Natasha's godmother, Marya D., while Natasha waits for Andrey to return from the war. Marya D. is an old friend of Pierre's ("Moscow"). Marya D. advises Natasha that she must visit her future in-laws, the demented old Prince Bolkonsky and his pitiable spinster daughter Mary ("The Private and Intimate Life of the House"), to win their affection in advance of the marriage, which is critical to the status and fortune of the Rostov family. However, Natasha's visit with Mary and Bolkonsky ends in disaster ("Natasha & Bolkonskys"), as Mary finds Natasha vain, Natasha finds Mary cold, and Bolkonsky behaves bizarrely. Natasha leaves their home missing Andrey more than ever ("No One Else").<br>
 <br>
 The next night Natasha is introduced to decadent Moscow society after an extravagant performance at "The Opera". There she meets Prince Anatole Kuragin, a young and handsome man and, it turns out, a notorious rogue ("Natasha & Anatole"); their interaction leaves Natasha feeling confused.<br>
@@ -11,16 +12,16 @@ The next night Natasha is introduced to decadent Moscow society after an extrava
 Anatole, his friend Dolokhov, and Pierre go out drinking; they are met by Pierre's unpleasant wife, Hélène (Anatole's sister), who taunts Pierre and flirts with Dolokhov. Anatole plots with Dolokhov and Hélène to to have the young woman he just met, although he is already married. Pierre finds his wife's familiarity with Dolokhov offensive and drunkenly challenges him to a duel, accidentally wounding Dolokhov. When it is Dolokhov's turn to shoot, Pierre stands openly in front of the bullet, but Dolokhov miraculously misses him ("The Duel"). Alone, Pierre reflects on his near-death experience and realizes that despite wasting his life, he wishes to live ("Dust and Ashes").<br>
 <br>
 Natasha and her family go to church ("Sunday Morning"). Hélène finds it amusing to encourage her brother Anatole's conquest of the young countess Natasha, which she knows would lead to Natasha's ruin. Hélène visits Natasha and invites her to the ball that night ("Charming"), where Anatole seduces Natasha, and she persuades herself that she loves him ("The Ball").<br>
-<br>
+
 ### Act 2
-<br>
+
 Anatole and Natasha make plans to elope (she still does not know that he is married), and Natasha tearfully breaks off her engagement with Andrey ("Letters"). Sonya finds out about the plan and realizes it will mean Natasha's ruin ("Sonya & Natasha"); Sonya determines to save Natasha from herself even if it means she will lose her closest friend ("Sonya Alone"). That evening Anatole and Dolokhov plan for the elopement ("Preparations"), and Dolokhov tries to change Anatole's mind with no success. Balaga, Their trusted troika driver ("Balaga"), soon arrives to take them to Natasha's house and a wild party ensues as Anatole bids farewell to his friends. However, they are thwarted at the last moment by Marya D. ("The Abduction"). Marya D. scolds Natasha but then tries to comfort her with Sonya's help. Natasha screams at them, breaks down and waits for Anatole to come back for her all night ("In My House").<br>
 <br>
 Marya D. calls on Pierre in the middle of the night ("A Call to Pierre"), begging him to handle the crisis, and Pierre finally learns that the object of Anatole's conquest is Natasha. Marya D. finds out that Anatole is married and tells a grief-stricken Natasha. Pierre, outraged, searches for Anatole ("Find Anatole"). When Pierre finds Anatole, he comes close to attacking him in rage, but instead gives him money and orders him to leave Moscow ("Pierre & Anatole"). Natasha poisons herself with arsenic ("Natasha Very Ill") but lives. The next day Andrey returns. Pierre explains the scandal to him and asks him to be compassionate, but Andrey is unable to forgive Natasha and will not ask for her hand in marriage again ("Pierre & Andrey"). Finally, Pierre visits Natasha ("Pierre & Natasha") and he comforts the distraught girl, giving her hope. After their meeting, Pierre experiences a moment of enlightenment himself while seeing The Great Comet of 1812 in the night sky.<br>
 <br>
-<br>
+
 ## Prologue
-<br>
+
 PIERRE: There’s a war going on<br>
 Out there somewhere<br>
 And Andrey isn’t here<br>
@@ -97,9 +98,9 @@ And what about Pierre?<br>
 Dear, bewildered and awkward Pierre? What about Pierre?<br>
 Rich, unhappily married Pierre? What about Pierre?<br>
 What about Pierre? What about Pierre?<br>
-<br>
+
 ## Pierre
-<br>
+
 PIERRE<br>
 It's dawned on me suddenly<br>
 And for no obvious reason<br>
@@ -186,9 +187,9 @@ I pity you, I pity me, I pity you<br>
 <br>
 CHORUS<br>
 Ah...<br>
-<br>
+
 ## Moscow 
-<br>
+
 (Natasha and Sonya arrive on sleighs)<br>
 <br>
 NATASHA<br>
@@ -317,9 +318,9 @@ Just be kind to Andrey's sister<br>
 And when the sister loves you,<br>
 So will the father<br>
 And all will be well<br>
-<br>
+
 ## The Private and Intimate Life of the House
-<br>
+
 BOLKONSKY<br>
 I've aged<br>
 I've aged so very much<br>
@@ -499,9 +500,9 @@ He is old and feeble<br>
 And I dare to judge him<br>
 I disgust myself<br>
 I disgust myself<br>
-<br>
+
 ## No One Else
-<br>
+
 NATASHA<br>
 The moon -<br>
 First time I heard your voice<br>
@@ -557,9 +558,9 @@ Maybe he'll come today<br>
 Maybe he came already<br>
 And he's sitting in the drawing room<br>
 And I simply forgot<br>
-<br>
+
 ## The Opera
-<br>
+
 MARYA D.<br>
 The opera, the opera!<br>
 Hold up your dresses and jump out quickly<br>
@@ -793,9 +794,9 @@ SONYA<br>
 And then<br>
 A rush of COLD air<br>
 And Anatole entered the box<br>
-<br>
+
 ## Natasha & Anatole
-<br>
+
 ANATOLE<br>
 I have long wished to have this happiness<br>
 Ever since the Naryshkins' ball<br>
@@ -898,9 +899,9 @@ There is nothing between us<br>
 Nothing between us<br>
 <br>
 (Anatole leaves)<br>
-<br>
+
 ## Natasha Lost
-<br>
+
 NATASHA<br>
 I smile, I shake<br>
 And the opera continues<br>
@@ -951,9 +952,9 @@ Just his face and strong hands<br>
 His glittering eyes<br>
 And his tender smile<br>
 That bold handsome man who pressed my arm<br>
-<br>
+
 ## The Duel 
-<br>
+
 ANATOLE<br>
 Good evening Pierre<br>
 Studying?<br>
@@ -1222,9 +1223,9 @@ They lose their heads at once<br>
 <br>
 Ask her to dinner, eh?<br>
 Sweet sister<br>
-<br>
+
 ## Dust and Ashes
-<br>
+
 PIERRE -<br>
 Is this how I die?<br>
 Ridiculed and laughed at<br>
@@ -1321,9 +1322,9 @@ God don’t let me die while I’m like this<br>
 I’m ready<br>
 I’m ready<br>
 To wake up<br>
-<br>
+
 ## Sunday Morning
-<br>
+
 NATASHA<br>
 Has Andrey arrived?<br>
 Has Andrey arrived?<br>
@@ -1377,9 +1378,9 @@ And just after Marya left<br>
 There was a knock at the door<br>
 Natasha had just turned her head to the glass<br>
 When she heard a voice that made her flush<br>
-<br>
+
 ## Charming
-<br>
+
 HÉLÈNE:<br>
 Oh my enchantress<br>
 Oh you beautiful thing Charming, charming No, this is really beyond anything<br>
@@ -1426,9 +1427,9 @@ Oh where have you been<br>
 It’s such a shame to bury pearls in the country Charmante, charmante, charming<br>
 It’s such a shame to bury pearls in the country Charmante, charmante, charming<br>
 It’s such a shame to bury pearls in the country Charmante, charmante, charming<br>
-<br>
+
 ## The Ball
-<br>
+
 ANATOLE<br>
 Waiting at the door<br>
 Waiting at the door<br>
@@ -1581,9 +1582,9 @@ I'll do anything for you<br>
 <br>
 NATASHA & ANATOLE<br>
 I'll do anything for you<br>
-<br>
+
 ## Letters
-<br>
+
 ALL<br>
 In nineteenth century Russia we write letters<br>
 We write letters<br>
@@ -1742,9 +1743,9 @@ Each and every word<br>
 I love him, I love him<br>
 <br>
 (Natasha sleeps. Sonya arrives and reads Anatole's letter.)<br>
-<br>
+
 ## Sonya & Natasha
-<br>
+
 SONYA<br>
 How was it I noticed nothing?<br>
 How could it go so far?<br>
@@ -1897,9 +1898,9 @@ I'd been unable to write all morning<br>
 All our misunderstandings are at an end<br>
 Forget everything and forgive me<br>
 But I can't be Andrey's wife<br>
-<br>
+
 ## Sonya Alone
-<br>
+
 SONYA:<br>
 Hard as it is In the coming days<br>
 I watch my friend in her strange unnatural state<br>
@@ -1939,9 +1940,9 @@ I won’t see you disgraced<br>
 I will protect your name and your heart<br>
 Because I miss my friend Because<br>
 I miss my friend Because I miss you, my friend<br>
-<br>
+
 ## Preparations
-<br>
+
 (Pierre runs into Anatole on the street. Pierre is drunk, Anatole in a hurry.)<br>
 <br>
 PIERRE<br>
@@ -2082,9 +2083,9 @@ Now then! Nearly ready? You're dawdling!<br>
 The driver is here<br>
 The driver is here<br>
 Balaga is here!<br>
-<br>
+
 ## Balaga
-<br>
+
 ANATOLE & DOLOKHOV<br>
 Hey Balaga<br>
 Ho Balaga<br>
@@ -2242,9 +2243,9 @@ Whoa...<br>
 <br>
 ALL<br>
 Whoa...<br>
-<br>
+
 ## The Abduction
-<br>
+
 ANATOLE<br>
 Everyone raise a glass! Whoa!<br>
 <br>
@@ -2356,9 +2357,9 @@ Betrayed! Betrayed! Betrayed!<br>
 <br>
 (Dolokhov rushes in and rescues Anatole. They flee.)<br>
 <br>
-<br>
+
 ## In My House
-<br>
+
 MARYA D.<br>
 You shameless good-for-nothing!<br>
 You vile, shameless girl!<br>
@@ -2451,9 +2452,9 @@ Her eyes wide open<br>
 All that night she did not sleep or weep<br>
 She sat at the window<br>
 Waiting for him<br>
-<br>
+
 ## A Call to Pierre
-<br>
+
 (A servant hands a letter to Pierre)<br>
 <br>
 SERVANT<br>
@@ -2548,9 +2549,9 @@ And not dare to let me set my eyes on him again<br>
 <br>
 PIERRE<br>
 At once<br>
-<br>
+
 ## Find Anatole
-<br>
+
 PIERRE<br>
 Anatole, find Anatole<br>
 Anatole, find Anatole<br>
@@ -2624,9 +2625,9 @@ But his face betrayed anxiety<br>
 <br>
 PIERRE<br>
 Pierre closed the door and addressed Anatole without looking at him<br>
-<br>
+
 ## Pierre & Anatole
-<br>
+
 (During this scene, Natasha prepares to poison herself)<br>
 <br>
 PIERRE<br>
@@ -2733,9 +2734,9 @@ Oh, vile and heartless brood!<br>
 ANATOLE<br>
 Next day Anatole left<br>
 For Petersburg!<br>
-<br>
+
 ## Natasha Very Ill
-<br>
+
 SONYA<br>
 Natasha very ill<br>
 The whole house<br>
@@ -2751,9 +2752,9 @@ And now she is out of danger<br>
 But still so weak<br>
 And Andrey is to return<br>
 We wait with dread<br>
-<br>
+
 ## Pierre & Andrey
-<br>
+
 (Pierre visits Andrey)<br>
 <br>
 ANDREY<br>
@@ -2815,9 +2816,9 @@ Never speak of that again<br>
 Well, goodbye<br>
 <br>
 (Pierre takes the letters to Natasha)<br>
-<br>
+
 ## Pierre & Natasha
-<br>
+
 PIERRE<br>
 Natasha was standing<br>
 In the middle of the drawing room<br>
@@ -2938,9 +2939,9 @@ Breathes in deep the air with joy<br>
 Despite the ten degrees of frost<br>
 <br>
 And I get my sleigh<br>
-<br>
+
 ## The Great Comet of 1812
-<br>
+
 PIERRE<br>
 Where to now?<br>
 Where can I go now?<br>
